@@ -1,0 +1,13 @@
+- [@PalestineDeepDive](https://www.youtube.com/@PalestineDeepDive) - New media proudly centring Palestinian voices. Connecting Palestinian realities to Western audiences. 
+- [@TheCouncilOf3](https://www.youtube.com/@TheCouncilOf3) - A channel that shares politics, protests, and informative videos about Palestine.
+- [@musicpalestineheritage](https://youtube.com/@musicpalestineheritage?feature=shared)
+- [United Nation Live Dec 15, 2023](https://www.youtube.com/watch?v=nkYp-95_yqw)
+- [Documentary](https://youtu.be/HnZSaKYmP2s) - Gaza Fights for Freedom (Abby Martin)
+- [Documentary](https://www.youtube.com/watch?v=cXhqgsZ7ZRc ) - The Occupation of Palestine: A Short History 
+- [AP Archived video](https://www.youtube.com/watch?v=aOnL80yhiko) - Jerusalem’s Afro-Palestinians Feel More Integrated 
+- [Afro Palestinian](https://www.youtube.com/watch?v=Gl87Vsx1AwI&feature=youtu.be ) - More on afro-Palestinians
+- [Obaida Al-Jawabreh Story](https://youtu.be/JjAsFhYOwGc) - Obaida Al-Jawabreh, child killed by an Israeli sniper after realse from Israeli prison 
+-  Ghassan Kanafani Interview (Beirut, 1970)  
+- [Akka city](https://youtu.be/KZ82Gpxobhc) - The historic city of Acre (Acre Bay)
+- [Documentary](https://www.youtube.com/watch?v=57Ss2Zk7Jb4) - (Spanish) Gaza: Cortometraje documental nominado a los GOYA
+ 

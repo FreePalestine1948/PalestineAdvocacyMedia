@@ -1,0 +1,120 @@
+# Twitter Accounts for Palestine Advocacy
+
+Discover a comprehensive list of Twitter accounts dedicated to providing live coverage, news, analysis, and activism for Palestine. Stay informed and support the Palestinian cause by following these accounts, which include journalists, activists, organizations, and media platforms.
+
+- [@AqsaFrontline](https://twitter.com/AqsaFrontline) - Providing live coverage of the ongoing conflicts in and around Palestine.
+- [@les_spectateurs](https://twitter.com/les_spectateurs) - News, Media, Sports, and data from around the world. (French)
+- [@Call2actionnow](https://twitter.com/Call2actionnow) - Global Call To Action
+- [@palestinian_the](https://twitter.com/palestinian_the) - The Palestinian Archive الأرشيف الفلسطيني
+- [@AMPalestine](https://twitter.com/AMPalestine) - American Muslims for Palestine
+- [@mosha3324](https://twitter.com/mosha3324) - Moshe Al-Yamani, A journalist specializing in Arab affairs
+- [@intifada](https://twitter.com/@intifada) - Palestine’s weapon of mass instruction.
+- [@theIMEU](https://twitter.com/@theIMEU) - Untold stories and facts on all things #Palestine
+- [@ShehabAgency](https://twitter.com/@ShehabAgency) (ar) / [@ShehabAgencyEn](https://twitter.com/@ShehabAgencyEn) - Shehab News Agency - transmits the picture from the Palestinian, Arab and international arena around the clock
+- [@DecolonizePS](https://twitter.com/@DecolonizePS) - DecolonizePalestine, your source for myth-busting & more
+- [@grassroots_quds](https://twitter.com/@grassroots_quds) - Resources on Jerusalem and Palestinians
+- [@metras_global](https://twitter.com/@metras_global) - A volunteering initiative translating content about Palestine based on [@metraswebsite](https://twitter.com/metraswebsite)
+- [@metraswebsite](https://twitter.com/metraswebsite) - A digital media platform focused on Palestine, creating content and producing cognitive & journalistic materials, committed to the Palestinian cause and resistance.
+- [@timesofgaza](https://twitter.com/@timesofgaza) - Latest updates from Palestine
+- [@AbbyMartin](https://twitter.com/@AbbyMartin) - Independent Journalist
+- [@Mondoweiss](https://twitter.com/@Mondoweiss) - News & analysis for people taking action for Palestine.
+- [@jvplive](https://twitter.com/@jvplive) - Jews organizing toward Palestinian liberation and Judaism beyond Zionism
+- [@QudsNen](https://twitter.com/QudsNen) - Quds News Network main account
+- [@Qudsn_en](https://twitter.com/@Qudsn_en) - Quds News Network backup account
+- [@Eyeonpal](https://twitter.com/@Eyeonpal) - Latest updates on palestine
+- [@swilkinsonbc](https://twitter.com/@swilkinsonbc) - Independent worker for Freedom and Justice in Palestine. Wants... An End to the Illegal israeli Occupation of Palestine
+- [@AliAbunimah](https://twitter.com/@AliAbunimah) - Independent worker, Author of “One Country” and “The Battle for Justice in Palestine
+- [@MuhammadSmiry](https://twitter.com/@MuhammadSmiry) - A Palestinian activist and journalist lives in Gaza
+- [@holylandsalt](https://twitter.com/@holylandsalt) - one of the living stones in the holy land, a Palestinian Christian activist that shares about the Christian holy land
+- [@fidaazaanin](https://twitter.com/@fidaazaanin) - A Pro-Palestinian activist
+- [@AManInTheSun](https://twitter.com/@AManInTheSun) - A Pro-Palestinian activist
+- [@YousefMunayyer](https://twitter.com/@YousefMunayyer) - A Pro-Palestinian activist
+- [@pal_legal](https://twitter.com/@pal_legal) - Activists in the US are censored and punished for speaking up for Palestinian freedom. They challenge the censorship so voices for justice can be heard.
+- [@palinfoen](https://twitter.com/@palinfoen) - Palestinian Information Center: Voice Of #Palestine. Reports & news 24/7
+- [@RivertoSea48](https://twitter.com/@RivertoSea48) - A Palestinian activist and journalist
+- [@Remroum](https://twitter.com/@Remroum) - A Palestinian activist and journalist
+- [@Alshabaka](https://twitter.com/@Alshabaka) - The Palestinian Policy Network. An independent, nonprofit think tank without borders. Arabic & English. RT ≠ Endorsement
+- [@Omar_Gaza](https://twitter.com/@Omar_Gaza) - A Palestinian activist and journalist
+- [@rananazzalh](https://twitter.com/@rananazzalh) - a refugee then returnee. artist & activist. transnational existence on occupied lands: Palestine to turtle island and back again.
+- [@yarahawari](https://twitter.com/@yarahawari) - Palestinian writer & senior policy analyst for @alshabaka. Podcast host of Rethinking Palestine & author of The Stone House (She/Her)
+- [@alshabaka](https://twitter.com/@alshabaka) - The Palestinian Policy Network. An independent, nonprofit think tank without borders. Arabic & English. RT ≠ Endorsement
+- [@alhaq_org](https://twitter.com/@alhaq_org) - Al-Haq is an independent Palestinian non-governmental human rights organization based in Ramallah, West Bank.
+- [@stevesalaita](https://twitter.com/@stevesalaita) - A pro-Palestinian activist
+- [@LinahAlsaafin](https://twitter.com/@LinahAlsaafin) - An online producer with Al Jazeera English
+- [@visualizingpal](https://twitter.com/@visualizingpal) - Data-led visual stories for social justice
+- [@NewpressPs](https://twitter.com/@NewpressPs) - A Palestinian news agency in Arabic
+- [@PalStudies](https://twitter.com/@PalStudies) - Oldest research publisher of academic journals, books, databases, &stories on Palestine & the Palestinians
+- [@Almeqdad](https://twitter.com/@Almeqdad) - Palestinian writer and researcher
+- [@GMajadli](https://twitter.com/@GMajadli) - Palestinian | public health & human rights | decolonization | Policy Member
+- [@nooranhamdan](https://twitter.com/@nooranhamdan) - A Pro-Palestinian activist
+- [@Alqastalps](https://twitter.com/@Alqastalps) - A Palestinian network specialized in the news about Jerusalem and its environs
+- [@WeAreNotNumbers](https://twitter.com/@WeAreNotNumbers) - A project of [@EuroMedHR](https://twitter.com/EuroMedHR) that pairs Palestinian writers with int'l mentors to write the stories behind the numbers of victims. Content not censored by Euro-Med
+- [@aljarmaqnet](https://twitter.com/@aljarmaqnet) - A Palestinian news agency in Arabic
+- [@TamaraINassar](https://twitter.com/@TamaraINassar) - A Pro-Palestinian activist,  an associate editor of [@intifada](https://twitter.com/@intifada), and the producer of the Electronic Intifada Podcast
+- [@itranslate123](https://twitter.com/@itranslate123) - Was a Palestinian writer, poet, professor, and activist from the Gaza Strip, He was killed in an air strike on his home
+- [@m7mdkurd](https://twitter.com/@m7mdkurd) - Writer from occupied Jerusalem. Palestine Correspondent at The Nation. Culture Editor at Mondoweiss. Author of RIFQA (poems, Haymarket).
+- [@palyouthmvmt](https://twitter.com/@palyouthmvmt) - The Palestinian Youth Movement (PYM) is a transnational, independent, grassroots movement of young Palestinians in Palestine and in exile worldwide
+- [@Farah_Gazan](https://twitter.com/@Farah_Gazan) - Palestinian based in Gaza Strip, business administration graduate, social media activist and influencer
+- [@SoniaSulaiman](https://twitter.com/@SoniaSulaiman) - Great account to learn more about Palestinian folktales
+- [@Pal_Shaheed](https://twitter.com/@Pal_Shaheed) - Agency publishes the names of the martyrs of the Palestinian people
+- [@GolanMarsad](https://twitter.com/@GolanMarsad) - Arab Human Rights Center in Golan-Heights, A non-profit organization that works to promote and protect human rights in the occupied Syrian Golan
+- For BDS: [@BDSmovement](https://twitter.com/@BDSmovement) - Official account of the Palestinian BDS National Committee (BNC). We're the Palestinian leadership of the global Boycott, Divestment & Sanctions (BDS) movement.
+- [@PACBI](https://twitter.com/@PACBI) - The Palestinian Campaign for the Academic & Cultural Boycott of Israel challenges Israeli apartheid via academic, cultural, sports & anti-pinkwashing campaigns.
+- [@Palestine_UN](https://twitter.com/Palestine_UN) - Official Twitter of the Mission to the United Nations
+- [@EekadFacts](https://twitter.com/EekadFacts) - Arab region’s first open-source intelligence platform that provides data-driven analysis.
+- [@misbarfc](https://twitter.com/misbarfc) - An Arab platform for examining news, finding facts, and detecting lies in space
+Public
+- [@matsda2sh](https://twitter.com/matsda2sh) - Agency Fights fake news and misinformation.
+- [@Zochrot](https://twitter.com/Zochrot) - Zochrot acts to promote Israeli Jewish society's awareness and responsibility for the Nakba, and the Return of Palestinian refugees
+- [@nadplo](https://twitter.com/nadplo) - The official Twitter account of the Palestine Liberation Organization - Negotiations Affairs Department.
+- [@palestine](https://twitter.com/palestine) - Latest news & commentary on Palestine, aggregated from mainstream and not-so-mainstream media.
+- [@WOLPalestine](https://twitter.com/WOLPalestine) - The World Organization for the Rights of the Palestinian People
+- [@palyouthmvmt](https://twitter.com/palyouthmvmt) - Within Our Lifetime is a Palestinian-led community organization that has been building the movement for Palestine in NYC since 2015.
+- [@PDeepdive](https://twitter.com/PDeepdive) - New media proudly centring Palestinian voices. Connecting Palestinian realities to Western audiences
+- [@_YFFP_](https://twitter.com/_YFFP_) - The youth of Manchester & Birmingham, the frontlines, the voice of the street, here to Globalise the Intifada and fight for a free Palestine!
+- [@Pal_action](https://twitter.com/Pal_action) - The direct action network dismantling British complicity with Israeli apartheid
+- [@Pal_ActionUS](https://twitter.com/Pal_ActionUS) - The US branch of [@Pal_Action](https://twitter.com/Pal_Action), the direct action network dismantling Elbit Systems and the Zionist War Machine.
+- [@PalestineNW](https://twitter.com/PalestineNW) - Anything shared is just to raise awareness. || An independent voice.
+- [@CensoredVoiceX](https://twitter.com/CensoredVoiceX) - CensoredVoiceX is a backup account for [@PalestineNW](https://twitter.com/PalestineNW)
+- [@FirasPalestine](https://twitter.com/FirasPalestine) - Palestine • Political Analyst, Palestinian Nationalist
+- [@HadiNasrallah](https://twitter.com/HadiNasrallah) - A Pro-Palestinian activist
+- [@Benguennak](https://twitter.com/Benguennak) - A journalist for the Al-Jazeera channel
+- [@AbdullahElshrif](https://twitter.com/AbdullahElshrif) - A Pro-Palestinian activist
+- [@mshinqiti](https://twitter.com/mshinqiti) - A Pro-Palestinian activist
+- [@Assaadtaha](https://twitter.com/Assaadtaha) - A Pro-Palestinian activist
+- [@amansouraja](https://twitter.com/amansouraja) - Host, Al-Jazeera Media Network Producer and presenter for Al Jazeera Network - Writer and author of more than 20 books - Working for: Freedom - Truth - Human
+- [@MhamedKrichen](https://twitter.com/MhamedKrichen) - Aljazeera News Anchor (CPJ Board Member 2011-2021). Tunisian journalist On Al Jazeera TV since its founding in 1996, he presents the weekly “Scenarios” program
+- [@Esralshikh](https://twitter.com/Esralshikh) - A Pro-Palestinian Journalist, researcher in social sciences and history
+- [@DrHaniAlDali](https://twitter.com/DrHaniAlDali) - An expert in Palestinian resistance affairs - a doctorate in strategic planning - a Palestinian in passion and identity - the son of Gaza
+- [@FimedAr](https://twitter.com/FimedAr) - A Palestinian media institution concerned with addressing the Turkish media and its institutions, building bridges of communication with writers, journalists, and opinion leaders, and covering Palestinian activities and events in Turkey.
+- [@Gaza_notice](https://twitter.com/Gaza_notice) - A special page to expose the crimes of the Israeli occupation in Gaza and Palestine
+- [@pmofa](https://twitter.com/pmofa) - The official account of the Palestinian Ministry of Foreign Affairs
+- [@PalestineRCS](https://twitter.com/PalestineRCS) - (PRCS) officially founded in 1968, is a national humanitarian organization that caters to the health and welfare of the Palestinian people and others in need.
+- [@ayaghanameh](https://twitter.com/@ayaghanameh) - A Palestinian activist and journalist
+- [@ase](https://twitter.com/ase) - Palestinian photographer and filmmaker
+- [@GazaMutualAid](https://twitter.com/GazaMutualAid) - They organize mutual aid funds for people in Gaza.
+- [@jvplive](https://twitter.com/jvplive) - Jews organizing toward Palestinian liberation and Judaism beyond Zionism
+- [@PDeepdive](https://twitter.com/PDeepdive) - New media proudly centring Palestinian voices. Connecting Palestinian realities to Western audiences.
+- [@Esralshikh](https://twitter.com/Esralshikh) - A Pro-Palestinian Journalist, researcher in social sciences and history
+- [@StopArabHate](https://twitter.com/StopArabHate) - Account that oppose all forms of hate: from anti-Arab hate to antisemitism and everything else. This page specifically brings awareness to anti-Arab sentiment
+- [@TheCouncil_333](https://twitter.com/TheCouncil_333) - A Pro-Palestinian activist sharing news, protests, informative, and videos
+- [@Hideous_Str](https://twitter.com/Hideous_Str) - A Pro-Palestinian activist
+- [@MouinRabbani](https://twitter.com/MouinRabbani) - A Pro-Palestinian activist
+- [@KintsugiMuslim](https://twitter.com/KintsugiMuslim) - A Pro-Palestinian activist
+- [@receipts_lol](https://twitter.com/receipts_lol) - Database of Israeli quotes demonstrating genocidal intent
+- [@MariamBarghouti](https://twitter.com/MariamBarghouti) - Journalist, and Pro-Palestinian activist
+- [@AsaWinstanley](https://twitter.com/AsaWinstanley) - Investigative journalist [@Intifada](https://twitter.com/Intifada) , and Pro-Palestinian activist
+- [@davidsheen](https://twitter.com/davidsheen) - Independent journalist [davidsheen](http://davidsheen.com/), and Pro-Palestinian activist
+- [@elivalley](https://twitter.com/elivalley) - Cartoonist, and Pro-Palestinian activist
+- [@PhilWeiss](https://twitter.com/PhilWeiss) - Journalist [@Mondoweiss](https://twitter.com/Mondoweiss), and Pro-Palestinian activist
+- [@abomoaaz23](https://twitter.com/abomoaaz23) - Palestinian journalist 
+- [@maqadema](https://twitter.com/maqadema) - Palestinian journalist 
+- [@AhmadReida](https://twitter.com/AhmadReida) -  Palestinian Humanitarian and Activist 
+- [@WaelDahdouh](https://twitter.com/WaelDahdouh) - Director and correspondent of Al Jazeera News Channel in Gaza
+- [@afafpal_](https://twitter.com/afafpal_) - Palestinian journalist 
+
+- [@Palestinecapti1](https://x.com/Palestinecapti1)
+- [@MunaHawwa](https://x.com/MunaHawwa)
+- [@Hamzah_1948](https://x.com/Hamzah_1948)
+- [@shameensuleman](https://x.com/shameensuleman)
+- [@Madz_WhereWeAt](https://x.com/Madz_WhereWeAt)
