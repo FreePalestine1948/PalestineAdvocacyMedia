@@ -1,6 +1,4 @@
-- [@PalestineDeepDive](https://www.youtube.com/@PalestineDeepDive) - New media proudly centring Palestinian voices. Connecting Palestinian realities to Western audiences. 
-- [@TheCouncilOf3](https://www.youtube.com/@TheCouncilOf3) - A channel that shares politics, protests, and informative videos about Palestine.
-- [@musicpalestineheritage](https://youtube.com/@musicpalestineheritage?feature=shared)
+## Documentaries
 - [United Nation Live Dec 15, 2023](https://www.youtube.com/watch?v=nkYp-95_yqw)
 - [Documentary](https://youtu.be/HnZSaKYmP2s) - Gaza Fights for Freedom (Abby Martin)
 - [Documentary](https://www.youtube.com/watch?v=cXhqgsZ7ZRc ) - The Occupation of Palestine: A Short History 
@@ -10,6 +8,11 @@
 -  Ghassan Kanafani Interview (Beirut, 1970)  
 - [Akka city](https://youtu.be/KZ82Gpxobhc) - The historic city of Acre (Acre Bay)
 - [Documentary](https://www.youtube.com/watch?v=57Ss2Zk7Jb4) - (Spanish) Gaza: Cortometraje documental nominado a los GOYA
+
+## Youtube channels
+- [PalestineDeepDive](https://www.youtube.com/@PalestineDeepDive) - New media proudly centring Palestinian voices. Connecting Palestinian realities to Western audiences. 
+- [TheCouncilOf3](https://www.youtube.com/@TheCouncilOf3) - A channel that shares politics, protests, and informative videos about Palestine.
+- [musicpalestineheritage](https://youtube.com/@musicpalestineheritage?feature=shared)
 - [Aliim](https://www.youtube.com/@aliim714) - YouTuber based in The Netherlands who interview people in public places trying to bring western and eastern cultures together and shed some light on Palestine.
 - [AJ+ عربي](https://www.youtube.com/channel/UCnVGseMUtv2yFNC-dQ2JdSw) - A digital space in which AJ+ shares stories
 concerned with presenting current events and topics inspired by contemporary Arab reality focusing presently on the Palestinian cause.
