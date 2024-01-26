@@ -120,4 +120,7 @@
 - [@alhelou_yousef](https://www.instagram.com/alhelou_yousef/) - Backup account for [@alhelou_y](https://www.instagram.com/alhelou_y)
 - [@joegaza93](https://www.instagram.com/joegaza93) - Palestinian healthcare worker, humanitarian and activist 
 - [@kenan_kitchen2022](https://www.instagram.com/kenan_kitchen2022/) - Restaurant account for the journalist [@abomoaaz23](https://www.instagram.com/abomoaaz23/)
-- [@recordmedia1](https://www.instagram.com/recordmedia1) - Palestinian artistic and media production company specializing in the production of artistic works, documentary and advertising films, in addition to creative design and motion graphics
+- [@recordmedia1](https://www.instagram.com/recordmedia1) - Palestinian artistic and media production company specializing in the production of artistic works, documentary and advertising films, in addition to creative design and motion graphics.
+- [@dr.ghassan.as](https://www.instagram.com/dr.ghassan.as/) - Palestinian British plastic surgeon specialized in conflict medicine, who has volunteered with medical teams in multiple conflicts in Gaza including the current Israel-Hamas war.
+- [@eekadfacts](https://www.instagram.com/eekadfacts/?hl=en) - Platform to publish facts and monitor fake news.
+- [@toronto4palestine](https://www.instagram.com/toronto4palestine/?hl=en) - Dedicated community-based movement amplifying oppressed voices and aiming to facilitate freedom & justice for Palestinians through strategic ACTION (e.g. call for manifestations, protests, signing online petitions, etc.).
