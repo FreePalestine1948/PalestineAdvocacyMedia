@@ -123,6 +123,7 @@
 - [@ShehabAgency](https://twitter.com/@ShehabAgency) - (ar) - Shehab News Agencytransmits the picture from the Palestinian, Arab and international arena around the clock
 - [@ShehabAgencyEn](https://twitter.com/@ShehabAgencyEn) - (en) - Shehab News Agencytransmits the picture from the Palestinian, Arab and international arena around the clock
 - [@SoniaSulaiman](https://twitter.com/@SoniaSulaiman) - Great account to learn more about Palestinian folktales
+- [@StandStill2023](https://twitter.com/StandStill2023) - Empowered by unity our turn to shine; locking down for humanity our strength will define!
 - [@stevesalaita](https://twitter.com/@stevesalaita) - A pro-Palestinian activist
 - [@stevesosebee](https://twitter.com/stevesosebee) - Pro-Palestinian Humanitarian
 - [@StopArabHate](https://twitter.com/StopArabHate) - Account that oppose all forms of hate: from anti-Arab hate to antisemitism and everything else. This page specifically brings awareness to anti-Arab sentiment
