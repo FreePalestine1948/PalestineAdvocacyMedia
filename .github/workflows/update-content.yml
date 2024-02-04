@@ -1,0 +1,22 @@
+name: Update-Content
+run-name: ${{ github.actor }} Running ${{ github.workflow }} on ${{ github.repository }}
+
+on:
+  schedule:
+    - cron: "0 0 * * 5"
+jobs:
+  update-content:
+    runs-on: ubuntu-latest
+    steps:
+      - uses: actions/checkout@v4
+      - uses: actions/setup-node@v4
+        with:
+          node-version: "18"
+      - run: node .github/actions/update-content.js
+      - name: Commit and push changes
+        run: |
+          git config --global user.email " Freepalestine1948@tutanota.com"
+          git config --global user.name "Github Actions"
+          git add .
+          git commit -m "Automated content update"
+          git push
