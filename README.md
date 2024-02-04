@@ -17,7 +17,7 @@ Encompassing multiple social platforms, it offers a diverse range of content, in
 
 [Instagram](Media/Instagram.md)
 
-[LinkedIn](Media/LinkedIn.md)
+[Linkedin](Media/Linkedin.md)
 
 [Tiktok](Media/Tiktok.md)
 
