@@ -1,24 +1,34 @@
-## Documentaries
-- [United Nation Live Dec 15, 2023](https://www.youtube.com/watch?v=nkYp-95_yqw)
-- [Documentary](https://youtu.be/HnZSaKYmP2s) - Gaza Fights for Freedom (Abby Martin)
-- [Documentary](https://www.youtube.com/watch?v=cXhqgsZ7ZRc ) - The Occupation of Palestine: A Short History 
-- [AP Archived video](https://www.youtube.com/watch?v=aOnL80yhiko) - Jerusalem’s Afro-Palestinians Feel More Integrated 
-- [Afro Palestinian](https://www.youtube.com/watch?v=Gl87Vsx1AwI&feature=youtu.be ) - More on afro-Palestinians
-- [Obaida Al-Jawabreh Story](https://youtu.be/JjAsFhYOwGc) - Obaida Al-Jawabreh, child killed by an Israeli sniper after realse from Israeli prison 
--  Ghassan Kanafani Interview (Beirut, 1970)  
-- [Akka city](https://youtu.be/KZ82Gpxobhc) - The historic city of Acre (Acre Bay)
-- [Documentary](https://www.youtube.com/watch?v=57Ss2Zk7Jb4) - (Spanish) Gaza: Cortometraje documental nominado a los GOYA
+# Youtube
 
-## Youtube channels
-- [PalestineDeepDive](https://www.youtube.com/@PalestineDeepDive) - New media proudly centring Palestinian voices. Connecting Palestinian realities to Western audiences. 
-- [TheCouncilOf3](https://www.youtube.com/@TheCouncilOf3) - A channel that shares politics, protests, and informative videos about Palestine.
-- [musicpalestineheritage](https://youtube.com/@musicpalestineheritage?feature=shared)
-- [Aliim](https://www.youtube.com/@aliim714) - YouTuber based in The Netherlands who interview people in public places trying to bring western and eastern cultures together and shed some light on Palestine.
-- [AJ+ عربي](https://www.youtube.com/channel/UCnVGseMUtv2yFNC-dQ2JdSw) - A digital space in which AJ+ shares stories
-concerned with presenting current events and topics inspired by contemporary Arab reality focusing presently on the Palestinian cause.
-- [The CJ Werlman Show](https://www.youtube.com/results?search_query=The+CJ+Werlman+Show) - A news media channel devoted to exposing and countering injustices in the Muslim world with a focus on Palestine.
-- [Ahmed Mansour](https://www.youtube.com/results?search_query=Ahmed+Mansour+channel) - An Egyptian journalist and interviewer on Al Jazeera. He analyses and discusses with his guests different subjects related to Palestine.
-- [George Galloway](https://www.youtube.com/results?search_query=george+galloway) - A British Pro-Palestinian politician and broadcaster.
-- [Middle East Eye](https://www.youtube.com/results?search_query=Middle+East+Eye) - An online news organisation that aims to be the primary portal of Middle East news featuring extensive coverage of Palestine.
-- [Norman Frinkelstein](https://www.youtube.com/results?search_query=Norman+Finkelstein) - An American political scientist and activist and who is primarly interested in politics of the Holocaust and the Israeli–Palestinian conflict.
-- [Abdel Bari Atwan](https://www.youtube.com/@abdelbariatwan9183/videos) - A Palestinian writer and broadcaster.
+
+- [(Spanish) Gaza: Cortometraje documental nominado a los GOYA](https://www.youtube.com/watch?v=57Ss2Zk7Jb4) - Documentary
+- [@abdelbariatwan9183](https://www.youtube.com/@abdelbariatwan9183) - A Palestinian writer and broadcaster.
+- [@AdnanBarq](https://www.youtube.com/c/AdnanBarq) - Palestinian Content Creator
+- [@ahmedmansouraja](https://www.youtube.com/@ahmedmansouraja) - An Egyptian journalist and interviewer on Al Jazeera. He analyses and discusses with his guests different subjects related to Palestine.
+- [@ajplus](https://www.youtube.com/@ajplus) - A digital space in which AJ+ shares stories concerned with presenting current events and topics
+- [@aliim714](https://www.youtube.com/@aliim714) - YouTuber based in The Netherlands who interview people in public places trying to bring western and eastern cultures together and shed some light on Palestine.
+- [@EekadFacts](https://www.youtube.com/@EekadFacts) - Platform to publish facts and monitor fake news.
+- [@electronicIntifada](https://www.youtube.com/electronicIntifada) - The Electronic Intifada is an independent online news publication and educational resource focusing on Palestine, its people, politics, culture and place in the world.
+- [@GeorgeGallowayOfficial](https://www.youtube.com/@GeorgeGallowayOfficial) - A British Pro-Palestinian politician and broadcaster.
+- [@MiddleEastEye](https://www.youtube.com/@MiddleEastEye) - An online news organisation that aims to be the primary portal of Middle East news featuring extensive coverage of Palestine.
+- [@mondoweissvideos](https://www.youtube.com/mondoweissvideos) - News and opinion about Palestine, israel, and the United States
+- [@musicpalestineheritage](https://www.youtube.com/@musicpalestineheritage) - Archive, works and masters of the Palestinian and nationalist bands, and heritage and folklore songs
+- [@musicpalestineheritage](https://youtube.com/@musicpalestineheritage?feature=shared) -
+- [@PalestineDeepDive](https://www.youtube.com/@PalestineDeepDive) - New media proudly centring Palestinian voices. Connecting Palestinian realities to Western audiences.
+- [@palqura9692](https://www.youtube.com/@palqura9692) - Encyclopedia of Palestinian Villages
+- [@shovrim](https://www.youtube.com/shovrim) - Breaking the Silence is veteran israeli soldiers exposing the reality of Occupied Territories, sparking public debate to end the occupation.
+- [@TheCJWerlemanShow](https://www.youtube.com/@TheCJWerlemanShow) - A news media channel devoted to exposing and countering injustices in the Muslim world with a focus on Palestine.
+- [@TheCouncilOf3](https://www.youtube.com/@TheCouncilOf3) - A channel that shares politics, protests, and informative videos about Palestine.
+- [@Zochrot](https://www.youtube.com/channel/UCLDCqsL0KFbkcL3Nhrr_ITQ) - Zochrot acts to promote Israeli Jewish society's awareness and responsibility for the Nakba, and the Return of Palestinian refugees as its imperative redress.
+- [7amleh](https://www.youtube.com/channel/UCffBcFopuwnfYmf4VoI2cLQ) - The Arab Center for the Advancement of Social Media is a non-profit organization that advocates for Palestinian digital rights.
+- [Afro Palestinian](https://www.youtube.com/watch?v=Gl87Vsx1AwI&feature=youtu.be ) - More on afro-Palestinians
+- [ajplusarabi](https://www.youtube.com/channel/UCnVGseMUtv2yFNC-dQ2JdSw) - A digital space in which AJ+ shares stories concerned with presenting current events and topics inspired by contemporary Arab reality focusing presently on the Palestinian cause.
+- [Akka city](https://youtu.be/KZ82Gpxobhc) - The historic city of Acre (Acre Bay)
+- [AP Archived video](https://www.youtube.com/watch?v=aOnL80yhiko) - Jerusalem’s Afro-Palestinians Feel More Integrated
+- [Gaza Fights for Freedom](https://youtu.be/HnZSaKYmP2s) - Documentary by Abby Martin
+- [Interview](https://www.youtube.com/watch?v=Veoy32G7trY) - Ghassan Kanafani Interview (Beirut, 1970) 
+- [Norman Finkelstein](https://www.youtube.com/results?search_query=Norman+Finkelstein) - An American political scientist and activist and who is primarly interested in politics of the Holocaust and the Israeli–Palestinian conflict.
+- [Obaida Al-Jawabreh Story](https://youtu.be/JjAsFhYOwGc) - Obaida Al-Jawabreh, child killed by an Israeli sniper after realse from Israeli prison
+- [PCBS](https://www.youtube.com/channel/UCeFbu-hKUNyhdM-G4X5VdPA) - The Palestinian Central Bureau of Statistics aims to develop and enhance the Palestinian official statistical system
+- [The Occupation of Palestine: A Short History ](https://www.youtube.com/watch?v=cXhqgsZ7ZRc ) - Documentary
+- [United Nation Live Dec 15, 2023](https://www.youtube.com/watch?v=nkYp-95_yqw) -

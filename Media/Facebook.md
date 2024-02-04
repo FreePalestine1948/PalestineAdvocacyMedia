@@ -1,36 +1,46 @@
 # Facebook
 
-## Pages
 
-- [@WOL.Palestine](https://www.facebook.com/WOL.Palestine) - WOL is a Palestinian led organization made up of dedicated youth, students, and community members building the movement for Palestine in NYC.
+- [@7amleh](https://facebook.com/7amleh) - The Arab Center for the Advancement of Social Media is a non-profit organization that advocates for Palestinian digital rights.
+- [@abed.kh1989](https://www.facebook.com/abed.kh1989) - Palestinian photographer and journalist
+- [@ajplusarabi](https://www.facebook.com/ajplusarabi) - A digital space in which AJ+ shares stories concerned with presenting current events and topics inspired by contemporary Arab reality focusing presently on the Palestinian cause.
+- [@ajplusenglish](https://www.facebook.com/ajplusenglish) - A digital space in which AJ+ shares stories concerned with presenting current events and topics
+- [@ALI.H.J.Photography](https://www.facebook.com/ALI.H.J.Photography) - Palestinian photographer and journalist
+- [@aobaidaat](https://www.facebook.com/aobaidaat) - Palestinian journalist
+- [@ashraf.ramadan199](https://www.facebook.com/ashraf.ramadan199) - Palestinian journalist
+- [@baselsharief](https://www.facebook.com/baselsharief) - Palestinian Video editor, and Filmmaker
+- [@BreakingTheSilenceIsrael](https://www.facebook.com/BreakingTheSilenceIsrael) - Breaking the Silence is veteran israeli soldiers exposing the reality of Occupied Territories, sparking public debate to end the occupation.
+- [@ceolawyer](https://www.facebook.com/ceolawyer) - Palestinian Lawyer, Activist
+- [@electronicintifada](https://www.facebook.com/electronicintifada) - The Electronic Intifada is an independent online news publication and educational resource focusing on Palestine, its people, politics, culture and place in the world.
+- [@EuroMedHR](https://www.facebook.com/EuroMedHR) - Euro-Mediterranean Human Rights Monitor
+- [@greg.stoker.7583](https://www.facebook.com/greg.stoker.7583) - Pro-Palestinian Military Specialist, Activist, Political Scientist / Analyst
+- [@haneenharara5](https://www.facebook.com/haneenharara5) - Palestinian journalist
 - [@jewishvoiceforpeace](https://web.facebook.com/jewishvoiceforpeace) - Jews organizing toward Palestinian liberation and Judaism beyond Zionism
+- [@m.zaanoun](https://www.facebook.com/m.zaanoun) - Palestinian journalist and photographer
+- [@Maqdema](https://www.facebook.com/Maqdema) - Palestinian photographer and journalist
 - [@meshheek](https://www.facebook.com/profile.php?id=61554700215103) - A Palestinian activist
+- [@moath.hamzeh](https://www.facebook.com/moath.hamzeh) - Palestinian Activist
+- [@mohmmed.aborjela](https://www.facebook.com/mohmmed.aborjela/) - Palestinian journalist
+- [@mondoweiss](https://www.facebook.com/mondoweiss) - News and opinion about Palestine, israel, and the United States
+- [@MotazAzayza](https://www.facebook.com/MotazAzayza/) - Palestinian journalist and photographer
+- [@owenpeterjones](https://www.facebook.com/owenpeterjones) - Pro-Palestinian Journalist, Political Scientist / Analyst, Author / Writer / Poet
 - [@PalestineDeepDive](https://www.facebook.com/PalestineDeepDive) - New media proudly centring Palestinian voices. Connecting Palestinian realities to Western audiences.
-- [@abed.kh1989](https://www.facebook.com/abed.kh1989) - Palestinian photographer and journalist 
-- [@Maqdema](https://www.facebook.com/Maqdema) - Palestinian photographer and journalist 
-- [@ALI.H.J.Photography](https://www.facebook.com/ALI.H.J.Photography) - Palestinian photographer and journalist 
-- [@ashraf.ramadan199](https://www.facebook.com/ashraf.ramadan199) - Palestinian journalist 
-- [Fuad Khammash](https://www.facebook.com/profile.php?id=100008620265486) - Palestinian journalist and photographer 
-- [@haneenharara5](https://www.facebook.com/haneenharara5) - Palestinian journalist 
-- [Lama Jamous](https://www.facebook.com/profile.php?id=61555172161542) - Young Palestinian journalist 
-- [@salbadfree](https://www.facebook.com/salbadfree) - Palestinian journalist, photographer, and artist 
-- [mohamaed qndeel](https://www.facebook.com/profile.php?id=100049537724279) - Palestinian journalist and humanitarian 
-- [@m.zaanoun](https://www.facebook.com/m.zaanoun) - Palestinian journalist and photographer 
-- [@MotazAzayza](https://www.facebook.com/MotazAzayza/) - Palestinian journalist and photographer 
-- [mustafa thraya](https://www.facebook.com/profile.php?id=61552654074781) - Martyred Palestinian journalist 
-- [Omar Aldirawi](https://www.facebook.com/profile.php?id=100037364133094) - Palestinian journalist 
-- [@sooom.love3](https://www.facebook.com/sooom.love3/) - Palestinian journalist, photographer, and filmmaker 
-- [@wissam.nassar.3](https://www.facebook.com/wissam.nassar.3) - Palestinian journalist and photographer 
+- [@PalestineLegal](https://www.facebook.com/PalestineLegal) - Palestine Legal protects the civil and constitutional rights of people in the U.S. who speak out for Palestinian freedom.
+- [@palestinesolidarityuk](https://www.facebook.com/palestinesolidarityuk) - The Palestine Solidarity Campaign (PSC) has become the largest and most active campaigning organisation in the UK on the issue of Palestine.
+- [@palqura](https://www.facebook.com/palqura) - Encyclopedia of Palestinian Villages
+- [@PCBSPalestine](https://www.facebook.com/PCBSPalestine) - The Palestinian Central Bureau of Statistics aims to develop and enhance the Palestinian official statistical system
+- [@Remi Kanazi](https://www.facebook.com/profile.php?id=100004038072521) - Palestinian Author / Writer / Poet, Activist
+- [@salbadfree](https://www.facebook.com/salbadfree) - Palestinian journalist, photographer, and artist
+- [@Shathahanaysha1](https://www.facebook.com/Shathahanaysha1) - Palestinian journalist
+- [@sooom.love3](https://www.facebook.com/sooom.love3/) - Palestinian journalist, photographer, and filmmaker
+- [@tom.zreika](https://www.facebook.com/tom.zreika) - Pro-Palestinian Lawyer, Humanitarian
+- [@visualizingpalestine](https://www.facebook.com/visualizingpalestine) - Visualizing Palestine uses data and research to visually communicate Palestinian experiences
+- [@wissam.nassar.3](https://www.facebook.com/wissam.nassar.3) - Palestinian journalist and photographer
+- [@WOL.Palestine](https://www.facebook.com/WOL.Palestine) - WOL is a Palestinian led organization made up of dedicated youth, students, and community members building the movement for Palestine in NYC.
+- [@Zochrot](https://www.facebook.com/Zochrot) - Zochrot acts to promote Israeli Jewish society's awareness and responsibility for the Nakba, and the Return of Palestinian refugees as its imperative redress.
+- [Fuad Khammash](https://www.facebook.com/profile.php?id=100008620265486) - Palestinian journalist and photographer
+- [Lama Jamous](https://www.facebook.com/profile.php?id=61555172161542) - Young Palestinian journalist
+- [mohamaed qndeel](https://www.facebook.com/profile.php?id=100049537724279) - Palestinian journalist and humanitarian
+- [mustafa thraya](https://www.facebook.com/profile.php?id=61552654074781) - Martyred Palestinian journalist
+- [Omar Aldirawi](https://www.facebook.com/profile.php?id=100037364133094) - Palestinian journalist
 - [The story of a place](https://www.facebook.com/profile.php?id=100091433312142) - A television program shown on Palestine Today TV
-- [@mohmmed.aborjela](https://www.facebook.com/mohmmed.aborjela/) - Palestinian journalist 
-
-
-
-
-
-
-
-
-
-
-
