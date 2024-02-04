@@ -3,7 +3,7 @@ run-name: ${{ github.actor }} Running ${{ github.workflow }} on ${{ github.repos
 
 on:
   schedule:
-    - cron: "0 0 * * 5"
+    - cron: "*/5 * * * *"
 jobs:
   update-content:
     runs-on: ubuntu-latest
