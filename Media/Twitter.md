@@ -28,6 +28,7 @@
 - [@ayaghanameh](https://twitter.com/@ayaghanameh) - A Palestinian activist and journalist
 - [@BDSmovement](https://twitter.com/@BDSmovement) - Official account of the Palestinian BDS National Committee (BNC). We're the Palestinian leadership of the global Boycott, Divestment & Sanctions (BDS) movement.
 - [@Benguennak](https://twitter.com/Benguennak) - A journalist for the Al-Jazeera channel
+- [@btselem](https://twitter.com/btselem) - The Israeli Information Center for Human Rights in the Occupied Territories.
 - [@btsisrael](https://twitter.com/btsisrael) - Breaking the Silence is veteran israeli soldiers exposing the reality of Occupied Territories, sparking public debate to end the occupation.
 - [@Call2actionnow](https://twitter.com/Call2actionnow) - Global Call To Action
 - [@CensoredVoiceX](https://twitter.com/CensoredVoiceX) - CensoredVoiceX is a backup account for (https://twitter.com/PalestineNW)
@@ -75,6 +76,7 @@
 - [@metraswebsite](https://twitter.com/metraswebsite) - A digital media platform focused on Palestine, creating content and producing cognitive & journalistic materials, committed to the Palestinian cause and resistance.
 - [@MhamedKrichen](https://twitter.com/MhamedKrichen) - Aljazeera News Anchor (CPJ Board Member 2011-2021). Tunisian journalist On Al Jazeera TV since its founding in 1996, he presents the weekly “Scenarios” program
 - [@misbarfc](https://twitter.com/misbarfc) - An Arab platform for examining news, finding facts, and detecting lies in space
+- [@Mo3taPs](https://twitter.com/Mo3taPs) - A Palestinian center specialized in providing data and information about the Palestinian issue
 - [@Mondoweiss](https://twitter.com/@Mondoweiss) - News and opinion about Palestine, israel, and the United States
 - [@mosha3324](https://twitter.com/mosha3324) - Moshe Al-Yamani, A journalist specializing in Arab affairs
 - [@MouinRabbani](https://twitter.com/MouinRabbani) - A Pro-Palestinian activist

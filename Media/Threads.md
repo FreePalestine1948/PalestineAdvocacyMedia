@@ -20,6 +20,7 @@
 - [@belalkh](https://www.threads.net/@belalkh) - Palestinian journalist, photographer and content creator
 - [@belalmortaja](https://www.threads.net/@belalmortaja) - Palestinian journalist
 - [@bismap](https://www.threads.net/@bismap) - Pro-Palestinian Author / Writer / Poet, Journalist, Content Creator
+- [@btselem](https://www.threads.net/@btselem) - The Israeli Information Center for Human Rights in the Occupied Territories.
 - [@byplestia](https://www.threads.net/@byplestia) - Palestinian journalist and content creator
 - [@ceolawyer](https://www.threads.net/@ceolawyer) - Palestinian Lawyer, Activist
 - [@cravingpalestine](https://www.threads.net/@cravingpalestine) - A Pro-Palestinian activist that shares news about Palestine.

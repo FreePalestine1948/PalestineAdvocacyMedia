@@ -7,6 +7,7 @@
 - [@ahmedmansouraja](https://www.youtube.com/@ahmedmansouraja) - An Egyptian journalist and interviewer on Al Jazeera. He analyses and discusses with his guests different subjects related to Palestine.
 - [@ajplus](https://www.youtube.com/@ajplus) - A digital space in which AJ+ shares stories concerned with presenting current events and topics
 - [@aliim714](https://www.youtube.com/@aliim714) - YouTuber based in The Netherlands who interview people in public places trying to bring western and eastern cultures together and shed some light on Palestine.
+- [@btselem](https://www.youtube.com/btselem) - The Israeli Information Center for Human Rights in the Occupied Territories.
 - [@EekadFacts](https://www.youtube.com/@EekadFacts) - Platform to publish facts and monitor fake news.
 - [@electronicIntifada](https://www.youtube.com/electronicIntifada) - The Electronic Intifada is an independent online news publication and educational resource focusing on Palestine, its people, politics, culture and place in the world.
 - [@GeorgeGallowayOfficial](https://www.youtube.com/@GeorgeGallowayOfficial) - A British Pro-Palestinian politician and broadcaster.

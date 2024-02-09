@@ -43,6 +43,7 @@
 - [@belalmortaja](https://www.instagram.com/belalmortaja) - Palestinian journalist
 - [@bismap](https://www.instagram.com/bismap) - Pro-Palestinian Author / Writer / Poet, Journalist, Content Creator
 - [@breakingthesilenceisrael](https://www.instagram.com/breakingthesilenceisrael) - Breaking the Silence is veteran israeli soldiers exposing the reality of Occupied Territories, sparking public debate to end the occupation.
+- [@btselem](https://www.instagram.com/btselem) - The Israeli Information Center for Human Rights in the Occupied Territories.
 - [@byplestia](https://www.instagram.com/byplestia) - Palestinian journalist and content creator
 - [@ceolawyer](https://www.instagram.com/ceolawyer) - Palestinian Lawyer, Activist
 - [@connectinghumanity_](https://www.instagram.com/connectinghumanity_) - A non profit organization to connect vulnerable people in conflict zones

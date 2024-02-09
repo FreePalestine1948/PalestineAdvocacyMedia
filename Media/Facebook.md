@@ -10,6 +10,7 @@
 - [@ashraf.ramadan199](https://www.facebook.com/ashraf.ramadan199) - Palestinian journalist
 - [@baselsharief](https://www.facebook.com/baselsharief) - Palestinian Video editor, and Filmmaker
 - [@BreakingTheSilenceIsrael](https://www.facebook.com/BreakingTheSilenceIsrael) - Breaking the Silence is veteran israeli soldiers exposing the reality of Occupied Territories, sparking public debate to end the occupation.
+- [@btselem](https://www.facebook.com/btselem) - The Israeli Information Center for Human Rights in the Occupied Territories.
 - [@ceolawyer](https://www.facebook.com/ceolawyer) - Palestinian Lawyer, Activist
 - [@electronicintifada](https://www.facebook.com/electronicintifada) - The Electronic Intifada is an independent online news publication and educational resource focusing on Palestine, its people, politics, culture and place in the world.
 - [@EuroMedHR](https://www.facebook.com/EuroMedHR) - Euro-Mediterranean Human Rights Monitor
@@ -19,6 +20,7 @@
 - [@m.zaanoun](https://www.facebook.com/m.zaanoun) - Palestinian journalist and photographer
 - [@Maqdema](https://www.facebook.com/Maqdema) - Palestinian photographer and journalist
 - [@meshheek](https://www.facebook.com/profile.php?id=61554700215103) - A Palestinian activist
+- [@mo3taps](https://www.facebook.com/mo3taps) - A Palestinian center specialized in providing data and information about the Palestinian issue
 - [@moath.hamzeh](https://www.facebook.com/moath.hamzeh) - Palestinian Activist
 - [@mohmmed.aborjela](https://www.facebook.com/mohmmed.aborjela/) - Palestinian journalist
 - [@mondoweiss](https://www.facebook.com/mondoweiss) - News and opinion about Palestine, israel, and the United States
