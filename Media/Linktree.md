@@ -8,6 +8,7 @@
 - [@Anat_International](https://linktr.ee/Anat_International) - Palestinian Activist, Content Creator
 - [@bismapar](https://linktr.ee/bismapar) - Pro-Palestinian Author / Writer / Poet, Journalist, Content Creator
 - [@call2actionnow.org.uk](https://linktr.ee/call2actionnow.org.uk) - A UK based group of activists who are working to raise awareness of the plight of the Palestinian people.
+- [@connectpalestine](https://linktr.ee/connectpalestine) - An initiative by Global Shapers that aims to support financially Palestinians and link them with valuable job prospects.
 - [@dianabuttu](https://linktr.ee/dianabuttu) - Palestinian Human Rights Lawyer, Political Scientist / Analyst, Author / Writer / Poet
 - [@eyeonpalestine](https://linktr.ee/eyeonpalestine) - A Collection of social accounts for eye.on.palestine organization that shares and documents the crimes of the Israeli occupation against the Palestinian people
 - [@freegaza](https://linktr.ee/freegaza) - A Collection of resources to Learn More About Israeli Apartheid
@@ -21,6 +22,7 @@
 - [@karterzaher](https://linktr.ee/karterzaher) - Pro-Palestinian Activist, Artist
 - [@letstalkpalestine](https://linktr.ee/letstalkpalestine) - A Collection of a Pro-Palestinian activists' social accounts initiative to educate and raise awareness about the Palestinian struggle for freedom and liberation.
 - [@m7mdkurd](https://linktr.ee/m7mdkurd) - A Collection of resources for the writer and activist Mohammed Kurd
+- [@MedicalAidforPalestinians](https://linktr.ee/MedicalAidforPalestinians) - Working for the health and dignity of Palestinians living under occupation and as refugees
 - [@meganbrice](https://linktr.ee/meganbrice) - Pro-Palestinian Author / Writer / Poet, Activist, Content Creator
 - [@mikopeled](https://linktr.ee/mikopeled) - Activist, Author / Writer / Poet
 - [@nouraerakat](https://linktr.ee/nouraerakat) - Palestinian Human Rights Lawyer, Author / Writer / Poet, Activist
@@ -34,6 +36,7 @@
 - [@palestineresources](https://linktr.ee/palestineresources) - Resources on Palestine
 - [@palestineswg](https://linktr.ee/palestineswg) - A Collection of resources to take action in solidarity with Palestine
 - [@palestinianyouthmovement](https://linktr.ee/palestinianyouthmovement) - A Collection of resources for the Palestinian Youth Movement
+- [@palmuseum](https://linktr.ee/palmuseum) - The Palestinian Museum - Non-Governmental Association dedicated to supporting an open and dynamic Palestinian culture nationally and internationally. The Museum presents and engages with new perspectives on Palestinian history, society and culture.
 - [@rosypirani](https://linktr.ee/rosypirani) - Pro-Palestinian Human Rights Lawyer
 - [@savegaza](https://linktr.ee/savegaza) - Contact your government for ceasefire
 - [@savepalestine](https://linktr.ee/savepalestine) - Collection of resources that you need to play your part in Palestine's liberation are here

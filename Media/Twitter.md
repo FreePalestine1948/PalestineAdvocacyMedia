@@ -32,6 +32,7 @@
 - [@btsisrael](https://twitter.com/btsisrael) - Breaking the Silence is veteran israeli soldiers exposing the reality of Occupied Territories, sparking public debate to end the occupation.
 - [@Call2actionnow](https://twitter.com/Call2actionnow) - Global Call To Action
 - [@CensoredVoiceX](https://twitter.com/CensoredVoiceX) - CensoredVoiceX is a backup account for (https://twitter.com/PalestineNW)
+- [@connectpal7](https://twitter.com/connectpal7) - An initiative by Global Shapers that aims to support financially Palestinians and link them with valuable job prospects.
 - [@crimesbyisrael](https://twitter.com/crimesbyisrael) - Announces updates to the "Crimes by Israel" compendium (crimesbyisrael.com), which is periodically updated. Posts crucial incidents from the document for a quick view of the most severe crimes and the international laws they violate.
 - [@davidsheen](https://twitter.com/davidsheen) - Independent journalist (http://davidsheen.com/), and Pro-Palestinian activist
 - [@DecolonizePS](https://twitter.com/@DecolonizePS) - DecolonizePalestine, your source for myth-busting & more
@@ -47,6 +48,8 @@
 - [@FirasPalestine](https://twitter.com/FirasPalestine) - Palestine • Political Analyst, Palestinian Nationalist
 - [@Gaza_notice](https://twitter.com/Gaza_notice) - A special page to expose the crimes of the Israeli occupation in Gaza and Palestine
 - [@GazaMutualAid](https://twitter.com/GazaMutualAid) - They organize mutual aid funds for people in Gaza.
+- [@gazanotice](https://twitter.com/gazanotice) - Gaza Notifications shares media & news by Palestinian journalists in Gaza Strip
+- [@gazapassages](https://twitter.com/gazapassages) - Texts by Palestinian writers in Gaza
 - [@GMajadli](https://twitter.com/@GMajadli) - Palestinian | public health & human rights | decolonization | Policy Member
 - [@GolanMarsad](https://twitter.com/@GolanMarsad) - Arab Human Rights Center in Golan-Heights, A non-profit organization that works to promote and protect human rights in the occupied Syrian Golan
 - [@grassroots_quds](https://twitter.com/@grassroots_quds) - Resources on Jerusalem and Palestinians
@@ -72,6 +75,7 @@
 - [@marwanbishara](https://twitter.com/marwanbishara) - Pro-Palestinian Political Scientist / Analyst, Author / Writer / Poet, Journalist
 - [@matsda2sh](https://twitter.com/matsda2sh) - Agency Fights fake news and misinformation.
 - [@MaxBlumenthal](https://twitter.com/MaxBlumenthal) - Pro-Palestinian Journalist, Activist
+- [@medicalaidpal](https://twitter.com/medicalaidpal) - Working for the health and dignity of Palestinians living under occupation and as refugees
 - [@metras_global](https://twitter.com/@metras_global) - A volunteering initiative translating content about Palestine based on (https://twitter.com/metraswebsite)
 - [@metraswebsite](https://twitter.com/metraswebsite) - A digital media platform focused on Palestine, creating content and producing cognitive & journalistic materials, committed to the Palestinian cause and resistance.
 - [@MhamedKrichen](https://twitter.com/MhamedKrichen) - Aljazeera News Anchor (CPJ Board Member 2011-2021). Tunisian journalist On Al Jazeera TV since its founding in 1996, he presents the weekly “Scenarios” program
@@ -87,6 +91,7 @@
 - [@NewpressPs](https://twitter.com/@NewpressPs) - A Palestinian news agency in Arabic
 - [@newsnajah](https://twitter.com/newsnajah) - Najah newsletter
 - [@nooranhamdan](https://twitter.com/@nooranhamdan) - A Pro-Palestinian activist
+- [@ochaopt](https://twitter.com/ochaopt) - OCHA is part of the United Nations Secretariat and is led by the Under-Secretary-General for Humanitarian Affairs and Emergency Relief Coordinator.
 - [@Omar_Gaza](https://twitter.com/@Omar_Gaza) - A Palestinian activist and journalist
 - [@owenjones84](https://twitter.com/owenjones84) - Pro-Palestinian Journalist, Political Scientist / Analyst, Author / Writer / Poet
 - [@PACBI](https://twitter.com/@PACBI) - The Palestinian Campaign for the Academic & Cultural Boycott of Israel challenges Israeli apartheid via academic, cultural, sports & anti-pinkwashing campaigns.
@@ -99,9 +104,11 @@
 - [@Palestine_UN](https://twitter.com/Palestine_UN) - Official Twitter of the Mission to the United Nations
 - [@Palestinecapti1](https://x.com/Palestinecapti1) -
 - [@PalestineNW](https://twitter.com/PalestineNW) - Anything shared is just to raise awareness. || An independent voice.
+- [@palestinepod](https://twitter.com/palestinepod) - Brings stories, expert opinions, in depth analysis & news commentary from Palestine.
 - [@PalestineRCS](https://twitter.com/PalestineRCS) - (PRCS) officially founded in 1968, is a national humanitarian organization that caters to the health and welfare of the Palestinian people and others in need.
 - [@palestinian_the](https://twitter.com/palestinian_the) - The Palestinian Archive الأرشيف الفلسطيني
 - [@palinfoen](https://twitter.com/@palinfoen) - Palestinian Information Center: Voice Of #Palestine. Reports & news 24/7
+- [@palmuseum](https://twitter.com/palmuseum) - The Palestinian Museum - Non-Governmental Association dedicated to supporting an open and dynamic Palestinian culture nationally and internationally. The Museum presents and engages with new perspectives on Palestinian history, society and culture.
 - [@PalStudies](https://twitter.com/@PalStudies) - Oldest research publisher of academic journals, books, databases, &stories on Palestine & the Palestinians
 - [@palyouthmvmt](https://twitter.com/@palyouthmvmt) - The Palestinian Youth Movement (PYM) is a transnational, independent, grassroots movement of young Palestinians in Palestine and in exile worldwide
 - [@palyouthmvmt](https://twitter.com/palyouthmvmt) - Within Our Lifetime is a Palestinian-led community organization that has been building the movement for Palestine in NYC since 2015.
@@ -124,6 +131,7 @@
 - [@shazaabed](https://twitter.com/shazaabed) - Palestinian journalist
 - [@ShehabAgency](https://twitter.com/@ShehabAgency) - (ar) - Shehab News Agencytransmits the picture from the Palestinian, Arab and international arena around the clock
 - [@ShehabAgencyEn](https://twitter.com/@ShehabAgencyEn) - (en) - Shehab News Agencytransmits the picture from the Palestinian, Arab and international arena around the clock
+- [@ShroufEthar](https://twitter.com/ShroufEthar) - Palestinian Activist, blogger, website and mobile application developer.
 - [@SoniaSulaiman](https://twitter.com/@SoniaSulaiman) - Great account to learn more about Palestinian folktales
 - [@StandStill2023](https://twitter.com/StandStill2023) - Empowered by unity our turn to shine; locking down for humanity our strength will define!
 - [@stevesalaita](https://twitter.com/@stevesalaita) - A pro-Palestinian activist
@@ -132,7 +140,9 @@
 - [@swilkinsonbc](https://twitter.com/@swilkinsonbc) - Independent worker for Freedom and Justice in Palestine. Wants... An End to the Illegal israeli Occupation of Palestine
 - [@TamaraINassar](https://twitter.com/@TamaraINassar) - A Pro-Palestinian activist,  an associate editor of (https://twitter.com/@intifada), and the producer of the Electronic Intifada Podcast
 - [@TheCouncil_333](https://twitter.com/TheCouncil_333) - A Pro-Palestinian activist sharing news, protests, informative, and videos
+- [@thegazangirl](https://twitter.com/thegazangirl) - Brings stories, expert opinions, in depth analysis & news commentary from Palestine.
 - [@theIMEU](https://twitter.com/@theIMEU) - Untold stories and facts on all things #Palestine
+- [@ThePCRF](https://twitter.com/ThePCRF) - The PCRF is a non-political, non-profit organization dedicated to healing the wounds of war.
 - [@timesofgaza](https://twitter.com/@timesofgaza) - Latest updates from Palestine
 - [@Toronto4P](https://twitter.com/Toronto4P) - Dedicated community-based movement amplifying oppressed voices and aiming to facilitate freedom & justice for Palestinians through strategic ACTION (e.g. call for manifestations, protests, signing online petitions, etc.).
 - [@visualizingpal](https://twitter.com/@visualizingpal) - Data-led visual stories for social justice

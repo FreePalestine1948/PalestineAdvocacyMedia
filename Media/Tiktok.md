@@ -18,6 +18,7 @@
 - [@kekasihrasulullah_](https://www.tiktok.com/@kekasihrasulullah_) - Pro-Palestinian activist
 - [@lama.jamous9](https://www.tiktok.com/@lama.jamous9) - Young Palestinian journalist
 - [@middleeasteye](https://www.tiktok.com/@middleeasteye) - Independent Middle East and North Africa news.
+- [@mikeyb_on](https://www.tiktok.com/@mikeyb_on) - Comedian aka Mikey Intifada and Cohost @thepalestinepod
 - [@mohammedalqattawi](https://www.tiktok.com/@mohammedalqattawi) - Pro-Palestinian activist
 - [@mondoweiss](https://www.tiktok.com/@mondoweiss) - News and opinion about Palestine, israel, and the United States
 - [@palestine_reposter3](https://www.tiktok.com/@palestine_reposter3) - Pro-Palestinian activist
@@ -25,5 +26,6 @@
 - [@palestine._official](https://www.tiktok.com/@palestine._official) - Pro-Palestinian activist
 - [@palestine1thefirstone](https://www.tiktok.com/@palestine1thefirstone) - Pro-Palestinian activist
 - [@spacebunny452](https://www.tiktok.com/@spacebunny452) - Pro-Palestinian Content Creator
+- [@thegazangirl](https://www.tiktok.com/@thegazangirl) - Brings stories, expert opinions, in depth analysis & news commentary from Palestine.
 - [@toronto4palestine](https://www.tiktok.com/@toronto4palestine) - Dedicated community-based movement amplifying oppressed voices and aiming to facilitate freedom & justice for Palestinians through strategic ACTION (e.g. call for manifestations, protests, signing online petitions, etc.).
 - [@y.f.f.p](https://tiktok.com/@y.f.f.p) - Youth in Britain. Globalise the Intifada! Fight for a Free Palestine

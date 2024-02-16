@@ -30,7 +30,7 @@
 - [@electronicintifada](https://www.threads.net/@electronicintifada) - The Electronic Intifada is an independent online news publication and educational resource focusing on Palestine, its people, politics, culture and place in the world.
 - [@eye.on.palestine](https://www.threads.net/@eye.on.palestine) - Palestinian journalist
 - [@faiz_osama50](https://www.threads.net/@faiz_osama50) - Palestinian journalist
-- [@freepalestinepod](https://www.threads.net/@freepalestinepod) - We bring you stories, expert opinions, in depth analysis & news commentary from Palestine.
+- [@freepalestinepod](https://www.threads.net/@freepalestinepod) - Brings stories, expert opinions, in depth analysis & news commentary from Palestine.
 - [@fuad.kh.ps_](https://www.threads.net/@fuad.kh.ps_) - Martyred Palestinian journalist and photographer
 - [@gazangirl](https://www.threads.net/@gazangirl) - Palestinian Human Rights Lawyer, Podcast host
 - [@greg.j.stoker](https://www.threads.net/@greg.j.stoker) - Pro-Palestinian Military Specialist, Activist, Political Scientist / Analyst
@@ -39,6 +39,7 @@
 - [@imamomarsuleiman](https://www.threads.net/@imamomarsuleiman) - Palestinian Religious Leader, Humanitarian
 - [@ismail.jood](https://www.threads.net/@ismail.jood) - Palestinian journalist
 - [@jenanmatari](https://www.threads.net/@jenanmatari) - Palestinian Author / Writer / Poet, Activist
+- [@jenieangie](https://www.threads.net/@jenieangie) - Pro-Palestinian Activist
 - [@karterzaher](https://www.threads.net/@karterzaher) - Pro-Palestinian Activist, Artist
 - [@lanzybear](https://www.threads.net/@lanzybear) - Palestinian Activist, Content Creator, Designer
 - [@m.z.gaza](https://www.threads.net/@m.z.gaza) - Palestinian journalist and photographer
@@ -47,14 +48,18 @@
 - [@maqadema](https://www.threads.net/@maqadema) - Palestinian journalist
 - [@mariambarghouti](https://www.threads.net/@mariambarghouti) - Palestinian Journalist, Author / Writer / Poet
 - [@markhachem](https://www.threads.net/@markhachem) - Pro-Palestinian Content Creator
+- [@medicalaidpal](https://www.threads.net/@medicalaidpal) - Working for the health and dignity of Palestinians living under occupation and as refugees
 - [@megan_b_rice](https://www.threads.net/@megan_b_rice) - Pro-Palestinian Author / Writer / Poet, Activist, Content Creator
+- [@metraswebsite](https://www.threads.net/@metraswebsite) - A digital media platform focused on Palestine, creating content and producing cognitive & journalistic materials, committed to the Palestinian cause and resistance.
 - [@mirna_elhelbawi](https://www.threads.net/@mirna_elhelbawi) - Palestinian Activist, Author / Writer / Poet
 - [@mo_elhelo21](https://www.threads.net/@mo_elhelo21) - Palestinian journalist and photographer
 - [@mohamaed_qndeel](https://www.threads.net/@mohamaed_qndeel) - Palestinian journalist and photographer
 - [@motasem.mortaja](https://www.threads.net/@motasem.mortaja) - Palestinian journalist
 - [@nicolejenes](https://www.threads.net/@nicolejenes) - Pro-Palestinian Content Creator, Humanitarian
+- [@ochaopt](https://www.threads.net/@ochaopt) - OCHA is part of the United Nations Secretariat and is led by the Under-Secretary-General for Humanitarian Affairs and Emergency Relief Coordinator.
 - [@owenjones84](https://www.threads.net/@owenjones84) - Pro-Palestinian Journalist, Political Scientist / Analyst, Author / Writer / Poet
 - [@pal_action](https://www.threads.net/@pal_action) - The direct action network dismantling British complicity with Israeli apartheid
+- [@pal48ps](https://www.threads.net/@pal48ps) - Our Palestine website, is mostly about Palestine before the Nakba, then the Nakba, and after the Nakba, the Jerusalem massacres, and the displaced Palestinian villages.
 - [@pcbspalestine](https://www.threads.net/@pcbspalestine) - The Palestinian Central Bureau of Statistics aims to develop and enhance the Palestinian official statistical system
 - [@pomegranates](https://www.threads.net/@pomegranates) - Palestinian Activist
 - [@princekouta](https://www.threads.net/@princekouta) - Palestinian healthcare worker
@@ -71,6 +76,7 @@
 - [@soliman__farra](https://www.threads.net/@soliman__farra) - Palestinian journalist, photographer, and filmmaker
 - [@stevesosebee](https://www.threads.net/@stevesosebee) - Pro-Palestinian Humanitarian
 - [@thegingarab](https://www.threads.net/@thegingarab) - Palestinian Activist, Content Creator
+- [@thepcrf](https://www.threads.net/@thepcrf) - The PCRF is a non-political, non-profit organization dedicated to healing the wounds of war.
 - [@tom.zreika](https://www.threads.net/@tom.zreika) - Pro-Palestinian Lawyer, Humanitarian
 - [@untoldpalestine](https://www.threads.net/@untoldpalestine) - Untold Palestine is an independent digital platform to tell visual stories about the lives of Palestinians. Through photographs and short videos
 - [@wael_eldahdouh](https://www.threads.net/@wael_eldahdouh) - Director and correspondent of Al Jazeera News Channel in Gaza

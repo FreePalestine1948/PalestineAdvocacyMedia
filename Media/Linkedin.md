@@ -6,6 +6,7 @@
 - [@aljazeera](https://www.linkedin.com/company/aljazeera/) - The official LinkedIn page for Al Jazeera Media Network. Al Jazeera is the world's leading news channel.
 - [@aljazeera-english](https://www.linkedin.com/showcase/aljazeera-english/) - The official LinkedIn page for Al Jazeera English. Al Jazeera English is the world's leading news channel.
 - [@amy07](https://www.linkedin.com/in/amy07) - Pro-Palestinian activist
+- [@connectpal7](https://www.linkedin.com/company/connectpal7) - An initiative by Global Shapers that aims to support financially Palestinians and link them with valuable job prospects.
 - [@dr-wael-ramadan-pmp-lssbb](https://www.linkedin.com/in/dr-wael-ramadan-pmp-lssbb) - Pro-Palestinian activist
 - [@embassy-of-the-state-of-palestine-hungary](https://www.linkedin.com/company/embassy-of-the-state-of-palestine-hungary/) -  Embassy of the State of PalestineHungary Palesztina
 - [@fadi-derbas-cybersecurity](https://www.linkedin.com/in/fadi-derbas-cybersecurity/) - Pro-Palestinian activist
@@ -20,6 +21,7 @@
 - [@mondoweiss](https://www.linkedin.com/company/mondoweiss) - News and opinion about Palestine, israel, and the United States
 - [@palestine-children's-relief-fund](https://www.linkedin.com/company/palestine-children's-relief-fund/) - The main objective of the P.C.R.F. is to identify and treat every child in the Middle East in need of specialized surgery not available to them locally.
 - [@pcbs-palestinian](https://www.linkedin.com/in/pcbs-palestinian-05b630135) - The Palestinian Central Bureau of Statistics aims to develop and enhance the Palestinian official statistical system
+- [@pcbs-palestinian](https://www.linkedin.com/in/pcbs-palestinian-05b630135/) - The Palestinian Central Bureau of Statistics aims to develop and enhance the Palestinian official statistical system
 - [@rabia-billings-nettuno](https://www.linkedin.com/in/rabia-billings-nettuno-🍉-75784226) -
 - [@save-the-children-international](https://www.linkedin.com/company/save-the-children-international/) - Save the Children is the world's leading independent organisation for children
 - [@the-palestine-chronicle](https://www.linkedin.com/company/the-palestine-chronicle/) - The Palestine Chronicle is a non-profit organization that aims to educate the public about human rights, national struggles, freedom, and democracy through news, commentary, features, book reviews, photos, art, and more.

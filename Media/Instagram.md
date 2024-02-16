@@ -46,6 +46,7 @@
 - [@btselem](https://www.instagram.com/btselem) - The Israeli Information Center for Human Rights in the Occupied Territories.
 - [@byplestia](https://www.instagram.com/byplestia) - Palestinian journalist and content creator
 - [@ceolawyer](https://www.instagram.com/ceolawyer) - Palestinian Lawyer, Activist
+- [@connect_palestine](https://www.instagram.com/connect_palestine) - An initiative by Global Shapers that aims to support financially Palestinians and link them with valuable job prospects.
 - [@connectinghumanity_](https://www.instagram.com/connectinghumanity_) - A non profit organization to connect vulnerable people in conflict zones
 - [@cravingpalestine](https://instagram.com/cravingpalestine) - A Pro-Palestinian initiative to educate and raise awareness about the Palestinian struggle for freedom and liberation.
 - [@decolonizepalestine](https://instagram.com/decolonizepalestine) - a collection of resources for anyone who wants to learn more about Palestine.
@@ -80,6 +81,7 @@
 - [@gahnaim2](https://www.instagram.com/gahnaim2/) - Backup account for (https://www.instagram.com/gahnaim)
 - [@gazamutualaid](https://www.instagram.com/gazamutualaid/) - They organize mutual aid funds for people in Gaza.
 - [@gazangirl](https://www.instagram.com/gazangirl) - Palestinian Human Rights Lawyer, Podcast host
+- [@gazapassages](https://www.instagram.com/gazapassages) - Texts by Palestinian writers in Gaza
 - [@greg.j.stoker](https://www.instagram.com/greg.j.stoker) - Pro-Palestinian Military Specialist, Activist, Political Scientist / Analyst
 - [@hamza_w_dahdooh](https://www.instagram.com/hamza_w_dahdooh) - Martyred Palestinian journalist
 - [@hamzadahdooh](https://www.instagram.com/hamzadahdooh/) - Backup account for The Martyred Palestinian journalist
@@ -116,10 +118,13 @@
 - [@maqadema.news](https://www.instagram.com/maqadema.news/) - News account for (https://www.instagram.com/maqadema)
 - [@mariambarghouti](https://www.instagram.com/mariambarghouti) - Palestinian Journalist, Author / Writer / Poet
 - [@markhachem](https://www.instagram.com/markhachem) - Pro-Palestinian Content Creator
+- [@medicalaidpal](https://www.instagram.com/medicalaidpal) - Working for the health and dignity of Palestinians living under occupation and as refugees
 - [@megan_b_rice](https://www.instagram.com/megan_b_rice) - Pro-Palestinian Author / Writer / Poet, Activist, Content Creator
 - [@mesh.hek](https://www.instagram.com/mesh.hek) - Palestinian activist
 - [@metras_global](https://instagram.com/metras_global) - A volunteering initiative based on (https://instagram.com/metraswebsite) which creates research oriented content on Palestine and its resistance.
 - [@metraswebsite](https://instagram.com/metraswebsite) - A digital media platform focused on Palestine, creating content and producing cognitive & journalistic materials, committed to the Palestinian cause and resistance.
+- [@metraswebsite](https://www.instagram.com/metraswebsite) - A digital media platform focused on Palestine, creating content and producing cognitive & journalistic materials, committed to the Palestinian cause and resistance.
+- [@michael_schirtzer](https://www.instagram.com/michael_schirtzer) - Comedian aka Mikey Intifada and Cohost @thepalestinepod
 - [@mikopeled](https://www.instagram.com/mikopeled) - Activist, Author / Writer / Poet
 - [@mirna_elhelbawi](https://www.instagram.com/mirna_elhelbawi) - Palestinian Activist, Author / Writer / Poet
 - [@mo_elhelo21](https://www.instagram.com/mo_elhelo21) - Palestinian journalist and photographer
@@ -136,16 +141,19 @@
 - [@nicolejenes](https://www.instagram.com/nicolejenes) - Pro-Palestinian Content Creator, Humanitarian
 - [@normanfinkelsteinofficial](https://www.instagram.com/normanfinkelsteinofficial) - Pro-Palestinian Professor, Political Scientist / Analyst
 - [@nouraerakat](https://www.instagram.com/nouraerakat) - Palestinian Human Rights Lawyer, Author / Writer / Poet, Activist
+- [@ochaopt](https://www.instagram.com/ochaopt) - OCHA is part of the United Nations Secretariat and is led by the Under-Secretary-General for Humanitarian Affairs and Emergency Relief Coordinator.
 - [@odai.emran](https://www.instagram.com/odai.emran) - Pro-Palestinian Content Creator
 - [@omar_aldirawi](https://www.instagram.com/omar_aldirawi) - Palestinian journalist and photographer
 - [@outvertigo](https://instagram.com/outvertigo) - Palestinian refugee
 - [@owenjones84](https://www.instagram.com/owenjones84) - Pro-Palestinian Journalist, Political Scientist / Analyst, Author / Writer / Poet
 - [@pal_action](https://instagram.com/pal_action) - The direct action network dismantling British complicity in Israeli apartheid
 - [@pal_legal](https://www.instagram.com/pal_legal) - Palestine Legal protects the civil and constitutional rights of people in the U.S. who speak out for Palestinian freedom.
+- [@pal48ps](https://www.instagram.com/pal48ps) - Our Palestine website, is mostly about Palestine before the Nakba, then the Nakba, and after the Nakba, the Jerusalem massacres, and the displaced Palestinian villages.
 - [@palestinecinema](https://instagram.com/palestinecinema) - Palestine Cinema
 - [@palestinevoices](https://instagram.com/palestinevoices) - Learn about Palestine from Palestinians. Only we can write the narrative 🇵🇸
 - [@palestinianyouthmovement](https://instagram.com/palestinianyouthmovement) - A transnational, independent, grassroots movement of Palestinian & Arab youth struggling for the liberation of our homeland.
 - [@palfilminstitute](https://instagram.com/palfilminstitute) - For the development, promotion, and preservation of Palestine’s cinema
+- [@palmuseum](https://www.instagram.com/palmuseum) - The Palestinian Museum - Non-Governmental Association dedicated to supporting an open and dynamic Palestinian culture nationally and internationally. The Museum presents and engages with new perspectives on Palestinian history, society and culture.
 - [@palqura](https://www.instagram.com/palqura) - Encyclopedia of Palestinian Villages
 - [@palyouthmvmt](https://www.instagram.com/palyouthmvmt/) - Backup account for (https://instagram.com/palestinianyouthmovement)
 - [@pcbspalestine](https://www.instagram.com/pcbspalestine) - The Palestinian Central Bureau of Statistics aims to develop and enhance the Palestinian official statistical system
@@ -177,7 +185,8 @@
 - [@thatlawyermomlife](https://www.instagram.com/thatlawyermomlife) - Pro-Palestinian Content Creator, Lawyer
 - [@thegingarab](https://www.instagram.com/thegingarab) - Palestinian Activist, Content Creator
 - [@theimeu](https://instagram.com/theimeu) - Giving you access to untold stories, facts, and expert sources on all things #Palestine— politics, culture, art, and activism.
-- [@thepalestinepod](https://www.instagram.com/thepalestinepod/) - Palestinian-American Lawyer & Jewish-American comedian break down the latest Palestine-related news with commentary
+- [@thepalestinepod](https://www.instagram.com/thepalestinepod/) - Brings stories, expert opinions, in depth analysis & news commentary from Palestine.
+- [@thepcrf](https://www.instagram.com/thepcrf) - The PCRF is a non-political, non-profit organization dedicated to healing the wounds of war.
 - [@tom.zreika](https://www.instagram.com/tom.zreika) - Pro-Palestinian Lawyer, Humanitarian
 - [@toronto4palestine](https://www.instagram.com/toronto4palestine) - Dedicated community-based movement amplifying oppressed voices and aiming to facilitate freedom & justice for Palestinians through strategic ACTION (e.g. call for manifestations, protests, signing online petitions, etc.).
 - [@unmutegaza](https://www.instagram.com/unmutegaza) - Palestinian Advocacy group, Content Creator

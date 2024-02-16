@@ -33,6 +33,7 @@
 - [@lps](https://masto.1146.nohost.me/@lps) - A Pro-Palestinian activist
 - [@maqademaArchive](https://t.me/maqademaArchive) - Palestinian journalist form Gaza
 - [@meshheek](https://t.me/meshheek) - A Palestinian activist
+- [@metrasweb](https://t.me/metrasweb) - A digital media platform focused on Palestine, creating content and producing cognitive & journalistic materials, committed to the Palestinian cause and resistance.
 - [@MisbarFC](https://t.me/MisbarFC) - An Arab platform for examining news, finding facts, and detecting lies in the public space
 - [@mo3taps](https://t.me/mo3taps) - A Palestinian center specialized in providing data and information about the Palestinian issue
 - [@mondoweissgram](https://t.me/mondoweissgram) - News and opinion about Palestine, israel, and the United States

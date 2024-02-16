@@ -11,20 +11,27 @@
 - [@EekadFacts](https://www.youtube.com/@EekadFacts) - Platform to publish facts and monitor fake news.
 - [@electronicIntifada](https://www.youtube.com/electronicIntifada) - The Electronic Intifada is an independent online news publication and educational resource focusing on Palestine, its people, politics, culture and place in the world.
 - [@GeorgeGallowayOfficial](https://www.youtube.com/@GeorgeGallowayOfficial) - A British Pro-Palestinian politician and broadcaster.
+- [@MedicalAidPalestine](https://www.youtube.com/user/MedicalAidPalestine) - Working for the health and dignity of Palestinians living under occupation and as refugees
+- [@MetrasWebsite](https://www.youtube.com/@MetrasWebsite) - A digital media platform focused on Palestine, creating content and producing cognitive & journalistic materials, committed to the Palestinian cause and resistance.
 - [@MiddleEastEye](https://www.youtube.com/@MiddleEastEye) - An online news organisation that aims to be the primary portal of Middle East news featuring extensive coverage of Palestine.
 - [@mondoweissvideos](https://www.youtube.com/mondoweissvideos) - News and opinion about Palestine, israel, and the United States
-- [@musicpalestineheritage](https://www.youtube.com/@musicpalestineheritage) - Archive, works and masters of the Palestinian and nationalist bands, and heritage and folklore songs
 - [@musicpalestineheritage](https://youtube.com/@musicpalestineheritage?feature=shared) -
+- [@musicpalestineheritage](https://www.youtube.com/@musicpalestineheritage) - Archive, works and masters of the Palestinian and nationalist bands, and heritage and folklore songs
+- [@ochaopt](https://www.youtube.com/user/ochaopt) - OCHA is part of the United Nations Secretariat and is led by the Under-Secretary-General for Humanitarian Affairs and Emergency Relief Coordinator.
 - [@PalestineDeepDive](https://www.youtube.com/@PalestineDeepDive) - New media proudly centring Palestinian voices. Connecting Palestinian realities to Western audiences.
+- [@palmuseum](https://www.youtube.com/palmuseum) - The Palestinian Museum - Non-Governmental Association dedicated to supporting an open and dynamic Palestinian culture nationally and internationally. The Museum presents and engages with new perspectives on Palestinian history, society and culture.
 - [@palqura9692](https://www.youtube.com/@palqura9692) - Encyclopedia of Palestinian Villages
+- [@PCRFVideos](https://www.youtube.com/user/PCRFVideos) - The PCRF is a non-political, non-profit organization dedicated to healing the wounds of war.
 - [@shovrim](https://www.youtube.com/shovrim) - Breaking the Silence is veteran israeli soldiers exposing the reality of Occupied Territories, sparking public debate to end the occupation.
 - [@TheCJWerlemanShow](https://www.youtube.com/@TheCJWerlemanShow) - A news media channel devoted to exposing and countering injustices in the Muslim world with a focus on Palestine.
 - [@TheCouncilOf3](https://www.youtube.com/@TheCouncilOf3) - A channel that shares politics, protests, and informative videos about Palestine.
+- [@thepalestinepod](https://www.youtube.com/thepalestinepod) - Brings stories, expert opinions, in depth analysis & news commentary from Palestine.
 - [@Zochrot](https://www.youtube.com/channel/UCLDCqsL0KFbkcL3Nhrr_ITQ) - Zochrot acts to promote Israeli Jewish society's awareness and responsibility for the Nakba, and the Return of Palestinian refugees as its imperative redress.
 - [7amleh](https://www.youtube.com/channel/UCffBcFopuwnfYmf4VoI2cLQ) - The Arab Center for the Advancement of Social Media is a non-profit organization that advocates for Palestinian digital rights.
 - [Afro Palestinian](https://www.youtube.com/watch?v=Gl87Vsx1AwI&feature=youtu.be ) - More on afro-Palestinians
 - [ajplusarabi](https://www.youtube.com/channel/UCnVGseMUtv2yFNC-dQ2JdSw) - A digital space in which AJ+ shares stories concerned with presenting current events and topics inspired by contemporary Arab reality focusing presently on the Palestinian cause.
 - [Akka city](https://youtu.be/KZ82Gpxobhc) - The historic city of Acre (Acre Bay)
+- [Almaydan](https://www.youtube.com/@user-cy5hd6jd4o) - Shares news and analysis about Palestine and Gaza war
 - [AP Archived video](https://www.youtube.com/watch?v=aOnL80yhiko) - Jerusalem’s Afro-Palestinians Feel More Integrated
 - [Gaza Fights for Freedom](https://youtu.be/HnZSaKYmP2s) - Documentary by Abby Martin
 - [Interview](https://www.youtube.com/watch?v=Veoy32G7trY) - Ghassan Kanafani Interview (Beirut, 1970) 
