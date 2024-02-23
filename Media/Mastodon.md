@@ -17,6 +17,7 @@
 - [@micchiato](https://mastodon.social/@micchiato) - A Pro-Palestinian activist
 - [@Miro_Collas](https://masto.ai/@Miro_Collas) - A Pro-Palestinian activist
 - [@MMRnmd](https://todon.eu/@MMRnmd) - A Pro-Palestinian activist
+- [@palestinechron](https://kolektiva.social/@palestinechron@bird.makeup) - The Palestine Chronicle is non-profit organization whose mission is to educate the general public by providing a forum that strives to highlight issues of relevance to human rights
 - [@PalestineNews](https://urbanists.social/@PalestineNews) - News about Palestine from various sources.
 - [@ProjectFearlessness](https://mastodonapp.uk/@ProjectFearlessness) - Independently minded man living in Manchester, U.K. Trying to get to the truth underneath all the lies and propaganda from the media and government.
 - [@rayaneyiko](https://mastodon.social/@rayaneyiko) - A Pro-Palestinian activist

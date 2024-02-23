@@ -17,6 +17,7 @@
 - [@lisatwam](https://www.linkedin.com/in/lisatwam) -
 - [@magdalenamajidah](https://www.linkedin.com/in/magdalenamajidah) - Human Rights, and Pro-Palestinian activist
 - [@mahmoud-al-fiqy](https://www.linkedin.com/in/mahmoud-al-fiqy-861541b1/) - Palestinian activist, Gazans
+- [@mansourshouman](https://www.linkedin.com/in/mansourshouman) - Reporter from Gaza and Consulting Manager previously
 - [@medical-aid-for-palestinians-map](https://www.linkedin.com/company/medical-aid-for-palestinians-map-/) - Medical Aid for Palestinians works for the health and dignity of Palestinians living under occupation and as refugees
 - [@mondoweiss](https://www.linkedin.com/company/mondoweiss) - News and opinion about Palestine, israel, and the United States
 - [@palestine-children's-relief-fund](https://www.linkedin.com/company/palestine-children's-relief-fund/) - The main objective of the P.C.R.F. is to identify and treat every child in the Middle East in need of specialized surgery not available to them locally.
@@ -25,6 +26,7 @@
 - [@rabia-billings-nettuno](https://www.linkedin.com/in/rabia-billings-nettuno-🍉-75784226) -
 - [@save-the-children-international](https://www.linkedin.com/company/save-the-children-international/) - Save the Children is the world's leading independent organisation for children
 - [@the-palestine-chronicle](https://www.linkedin.com/company/the-palestine-chronicle/) - The Palestine Chronicle is a non-profit organization that aims to educate the public about human rights, national struggles, freedom, and democracy through news, commentary, features, book reviews, photos, art, and more.
+- [@the-palestine-chronicle](https://www.linkedin.com/company/the-palestine-chronicle) - The Palestine Chronicle is non-profit organization whose mission is to educate the general public by providing a forum that strives to highlight issues of relevance to human rights
 - [@unrwa](https://www.linkedin.com/company/unrwa/) - UNRWA provides assistance and protection to some 5.5 million Palestine refugees to help them achieve their full potential in human development.
 - [@upaconnect](https://www.linkedin.com/company/upaconnect/) - United Palestinian Appeal seeks to alleviate the suffering of Palestinians in the West Bank, the Gaza Strip and refugee camps in Lebanon and Jordan.
 - [@wengng](https://www.linkedin.com/in/wengng/recent-activity/all/) - Pro-Palestinian activist

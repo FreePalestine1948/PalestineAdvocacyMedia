@@ -22,15 +22,18 @@
 - [@amansouraja](https://twitter.com/amansouraja) - Host, Al-Jazeera Media Network Producer and presenter for Al Jazeera NetworkWriter and author of more than 20 booksWorking for: FreedomTruthHuman
 - [@AMPalestine](https://twitter.com/AMPalestine) - American Muslims for Palestine
 - [@AqsaFrontline](https://twitter.com/AqsaFrontline) - Providing live coverage of the ongoing conflicts in and around Palestine.
+- [@archivegenocide](https://twitter.com/archivegenocide) - A crowdsourced record of journalists, politicians, and public figures endorsing or encouraging ethnic cleansing of Gaza and defaming pro-Palestinian Activists.
 - [@AsaWinstanley](https://twitter.com/AsaWinstanley) - Investigative journalist (https://twitter.com/Intifada) , and Pro-Palestinian activist
 - [@ase](https://twitter.com/ase) - Palestinian photographer and filmmaker
 - [@Assaadtaha](https://twitter.com/Assaadtaha) - A Pro-Palestinian activist
 - [@ayaghanameh](https://twitter.com/@ayaghanameh) - A Palestinian activist and journalist
 - [@BDSmovement](https://twitter.com/@BDSmovement) - Official account of the Palestinian BDS National Committee (BNC). We're the Palestinian leadership of the global Boycott, Divestment & Sanctions (BDS) movement.
 - [@Benguennak](https://twitter.com/Benguennak) - A journalist for the Al-Jazeera channel
+- [@BookClubPal](https://twitter.com/BookClubPal) - Book Club on Palestine
 - [@btselem](https://twitter.com/btselem) - The Israeli Information Center for Human Rights in the Occupied Territories.
 - [@btsisrael](https://twitter.com/btsisrael) - Breaking the Silence is veteran israeli soldiers exposing the reality of Occupied Territories, sparking public debate to end the occupation.
 - [@Call2actionnow](https://twitter.com/Call2actionnow) - Global Call To Action
+- [@CensoredNws](https://twitter.com/CensoredNws) - Pro-Palestinian Activist
 - [@CensoredVoiceX](https://twitter.com/CensoredVoiceX) - CensoredVoiceX is a backup account for (https://twitter.com/PalestineNW)
 - [@connectpal7](https://twitter.com/connectpal7) - An initiative by Global Shapers that aims to support financially Palestinians and link them with valuable job prospects.
 - [@crimesbyisrael](https://twitter.com/crimesbyisrael) - Announces updates to the "Crimes by Israel" compendium (crimesbyisrael.com), which is periodically updated. Posts crucial incidents from the document for a quick view of the most severe crimes and the international laws they violate.
@@ -47,6 +50,7 @@
 - [@FimedAr](https://twitter.com/FimedAr) - A Palestinian media institution concerned with addressing the Turkish media and its institutions, building bridges of communication with writers, journalists, and opinion leaders, and covering Palestinian activities and events in Turkey.
 - [@FirasPalestine](https://twitter.com/FirasPalestine) - Palestine • Political Analyst, Palestinian Nationalist
 - [@Gaza_notice](https://twitter.com/Gaza_notice) - A special page to expose the crimes of the Israeli occupation in Gaza and Palestine
+- [@Gaza_Shaheed](https://twitter.com/Gaza_Shaheed) - Because they are not numbers, here we tell the story of the martyrs, their lives, their memories, and their dreams
 - [@GazaMutualAid](https://twitter.com/GazaMutualAid) - They organize mutual aid funds for people in Gaza.
 - [@gazanotice](https://twitter.com/gazanotice) - Gaza Notifications shares media & news by Palestinian journalists in Gaza Strip
 - [@gazapassages](https://twitter.com/gazapassages) - Texts by Palestinian writers in Gaza
@@ -60,12 +64,15 @@
 - [@holylandsalt](https://twitter.com/@holylandsalt) - one of the living stones in the holy land, a Palestinian Christian activist that shares about the Christian holy land
 - [@intifada](https://twitter.com/@intifada) - Palestine’s weapon of mass instruction.
 - [@intifada](https://twitter.com/intifada) - The Electronic Intifada is an independent online news publication and educational resource focusing on Palestine, its people, politics, culture and place in the world.
+- [@ISMPalestine](https://twitter.com/ISMPalestine) - a Palestinian-led movement committed to resisting the long-entrenched and systematic oppression and dispossession of the Palestinian population, using non-violent, direct-action methods and principles
 - [@itranslate123](https://twitter.com/@itranslate123) - Was a Palestinian writer, poet, professor, and activist from the Gaza Strip, He was killed in an air strike on his home
+- [@jakeshieldsajj](https://twitter.com/jakeshieldsajj) - Pro Palestinian Activist and former UFC/MMA fighter
 - [@jvplive](https://twitter.com/@jvplive) - Jews organizing toward Palestinian liberation and Judaism beyond Zionism
 - [@jvplive](https://twitter.com/jvplive) - Jews organizing toward Palestinian liberation and Judaism beyond Zionism
 - [@KintsugiMuslim](https://twitter.com/KintsugiMuslim) - A Pro-Palestinian activist
 - [@les_spectateurs](https://twitter.com/les_spectateurs) - News, Media, Sports, and data from around the world. (French)
 - [@LinahAlsaafin](https://twitter.com/@LinahAlsaafin) - An online producer with Al Jazeera English
+- [@LormondAbelard](https://twitter.com/LormondAbelard) - A Pro-Palestinian Activist
 - [@Lowkey0nline](https://twitter.com/Lowkey0nline) - Pro-Palestinian Activist, Artist
 - [@m7mdkurd](https://twitter.com/@m7mdkurd) - Writer from occupied Jerusalem. Palestine Correspondent at The Nation. Culture Editor at Mondoweiss. Author of RIFQA (poems, Haymarket).
 - [@Madz_WhereWeAt](https://x.com/Madz_WhereWeAt) -
@@ -103,6 +110,8 @@
 - [@palestine](https://twitter.com/palestine) - Latest news & commentary on Palestine, aggregated from mainstream and not-so-mainstream media.
 - [@Palestine_UN](https://twitter.com/Palestine_UN) - Official Twitter of the Mission to the United Nations
 - [@Palestinecapti1](https://x.com/Palestinecapti1) -
+- [@Palestinecapti1](https://twitter.com/Palestinecapti1) - An account specialized in reporting the most important news of Palestinian captives in occupation prisons
+- [@palestinechron](https://twitter.com/palestinechron) - The Palestine Chronicle is non-profit organization whose mission is to educate the general public by providing a forum that strives to highlight issues of relevance to human rights
 - [@PalestineNW](https://twitter.com/PalestineNW) - Anything shared is just to raise awareness. || An independent voice.
 - [@palestinepod](https://twitter.com/palestinepod) - Brings stories, expert opinions, in depth analysis & news commentary from Palestine.
 - [@PalestineRCS](https://twitter.com/PalestineRCS) - (PRCS) officially founded in 1968, is a national humanitarian organization that caters to the health and welfare of the Palestinian people and others in need.
@@ -149,6 +158,7 @@
 - [@visualizingpal](https://twitter.com/visualizingpal) - Visualizing Palestine uses data and research to visually communicate Palestinian experiences
 - [@WaelDahdouh](https://twitter.com/WaelDahdouh) - Director and correspondent of Al Jazeera News Channel in Gaza
 - [@WeAreNotNumbers](https://twitter.com/@WeAreNotNumbers) - A project of (https://twitter.com/EuroMedHR) that pairs Palestinian writers with int'l mentors to write the stories behind the numbers of victims. Content not censored by Euro-Med
+- [@witnessorg](https://twitter.com/witnessorg) - WITNESS helps people use video and technology to protect and defend human rights.
 - [@WOLPalestine](https://twitter.com/WOLPalestine) - The World Organization for the Rights of the Palestinian People
 - [@yarahawari](https://twitter.com/@yarahawari) - Palestinian writer & senior policy analyst for @alshabaka. Podcast host of Rethinking Palestine & author of The Stone House (She/Her)
 - [@YousefMunayyer](https://twitter.com/@YousefMunayyer) - A Pro-Palestinian activist

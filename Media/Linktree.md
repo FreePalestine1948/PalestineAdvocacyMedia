@@ -16,6 +16,7 @@
 - [@greg.j.stoker](https://linktr.ee/greg.j.stoker) - Pro-Palestinian Military Specialist, Activist, Political Scientist / Analyst
 - [@helpoutpalestine](https://linktr.ee/helpoutpalestine) - A Collection of links to donate to Palestine or educate yourself on the crisis!
 - [@HelpPalestine](https://linktr.ee/HelpPalestine) - Resources to provide support and allyship to Palestine.
+- [@ismpalestine](https://linktr.ee/ismpalestine) - A Palestinian-led movement committed to resisting the long-entrenched and systematic oppression and dispossession of the Palestinian population, using non-violent, direct-action methods and principles
 - [@israelismfilm](https://linktr.ee/israelismfilm) -
 - [@Jenanmatari](https://linktr.ee/Jenanmatari) - Palestinian Author / Writer / Poet, Activist
 - [@Jupiterbaal](https://linktr.ee/Jupiterbaal) - Pro-Palestinian Activist
@@ -26,6 +27,7 @@
 - [@meganbrice](https://linktr.ee/meganbrice) - Pro-Palestinian Author / Writer / Poet, Activist, Content Creator
 - [@mikopeled](https://linktr.ee/mikopeled) - Activist, Author / Writer / Poet
 - [@nouraerakat](https://linktr.ee/nouraerakat) - Palestinian Human Rights Lawyer, Author / Writer / Poet, Activist
+- [@onefreecommunity](https://linktr.ee/onefreecommunity) - BIPOC & neurodivergent-led community with inclusive mutual aid networking.
 - [@pal_action](https://linktr.ee/pal_action) - The direct action network dismantling British complicity in Israeli apartheid
 - [@pal_legal](https://linktr.ee/pal_legal) - Palestine Legal protects the civil and constitutional rights of people in the U.S. who speak out for Palestinian freedom.
 - [@palactionus](https://linktr.ee/palactionus) - Direct action network against the US-Israeli war machine.
@@ -40,6 +42,7 @@
 - [@rosypirani](https://linktr.ee/rosypirani) - Pro-Palestinian Human Rights Lawyer
 - [@savegaza](https://linktr.ee/savegaza) - Contact your government for ceasefire
 - [@savepalestine](https://linktr.ee/savepalestine) - Collection of resources that you need to play your part in Palestine's liberation are here
+- [@studentsforpalestinenl](https://linktr.ee/studentsforpalestinenl) - The Hague, Netherlands Student collective in solidarity with Palestine against Apartheid. End the Occupation
 - [@toronto4palestine](https://linktr.ee/toronto4palestine) - Dedicated community-based movement amplifying oppressed voices and aiming to facilitate freedom & justice for Palestinians through strategic ACTION (e.g. call for manifestations, protests, signing online petitions, etc.).
 - [@visualizing_palestine](http://linktr.ee/visualizing_palestine) - Visual stories for social justice.
 - [@we_are_not_numbers](https://linktr.ee/we_are_not_numbers) - WANN, a project of Euro-Med Human Rights Monitor, pairs Palestinian writers with int'l mentors to write stories behind the numbers. Content is not censored by Euro-Med.

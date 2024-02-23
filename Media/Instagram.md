@@ -2,6 +2,7 @@
 
 
 - [@_doaa_mohammad](https://www.instagram.com/_doaa_mohammad) - Palestinian journalist and photographer
+- [@/](https://www.instagram.com/ismpalestine/) - A Palestinian-led movement committed to resisting the long-entrenched and systematic oppression and dispossession of the Palestinian population, using non-violent, direct-action methods and principles
 - [@7amleh](https://www.instagram.com/7amleh) - The Arab Center for the Advancement of Social Media is a non-profit organization that advocates for Palestinian digital rights.
 - [@a7mhisham](https://www.instagram.com/a7mhisham) - Palestinian journalist and content creator
 - [@a7mhisham1](https://www.instagram.com/a7mhisham1/) - Backup account for (https://www.instagram.com/a7mhisham)
@@ -16,6 +17,7 @@
 - [@abomoaaz23](https://www.instagram.com/abomoaaz23/) - Palestinian content creator
 - [@aborjelaa](https://www.instagram.com/aborjelaa) - Palestinian content creator
 - [@absorberyt](https://www.instagram.com/absorberyt) - Palestinian Content Creator
+- [@accountability.archive](https://www.instagram.com/accountability.archive) - A crowdsourced record of journalists, politicians, and public figures endorsing or encouraging ethnic cleansing of Gaza and defaming pro-Palestinian Activists.
 - [@activestills](https://instagram.com/activestills) - An independent photography collective engaged in decolonial struggles in Palestine/Israel since 2005.
 - [@adnan.barq](https://www.instagram.com/adnan.barq) - Palestinian Content Creator
 - [@afafpall_](https://www.instagram.com/afafpall_) - Palestinian journalist
@@ -30,6 +32,7 @@
 - [@alhelou.y](https://www.instagram.com/alhelou.y) - Palestinian Author / Writer / Poet, Political Scientist / Analyst
 - [@alijadallah66](https://www.instagram.com/alijadallah66) -  Palestinian photographer and journalist
 - [@almajd_free](https://www.instagram.com/almajd_free) - Palestinian journalist, photographer, and artist
+- [@almereforpalestine](https://www.instagram.com/almereforpalestine) - A Pro-Palestinian activist group
 - [@anat.international](https://www.instagram.com/anat.international) - Palestinian Activist, Content Creator
 - [@andrewfeinstein](https://www.instagram.com/andrewfeinstein) - Pro-Palestinian Politician, Political Scientist / Analyst
 - [@aobaidaat](https://www.instagram.com/aobaidaat) - Palestinian journalist
@@ -42,9 +45,11 @@
 - [@belalkh](https://www.instagram.com/belalkh) - Palestinian journalist and content creator 
 - [@belalmortaja](https://www.instagram.com/belalmortaja) - Palestinian journalist
 - [@bismap](https://www.instagram.com/bismap) - Pro-Palestinian Author / Writer / Poet, Journalist, Content Creator
+- [@bookclubonpalestine](https://www.instagram.com/bookclubonpalestine) - Book Club on Palestine
 - [@breakingthesilenceisrael](https://www.instagram.com/breakingthesilenceisrael) - Breaking the Silence is veteran israeli soldiers exposing the reality of Occupied Territories, sparking public debate to end the occupation.
 - [@btselem](https://www.instagram.com/btselem) - The Israeli Information Center for Human Rights in the Occupied Territories.
 - [@byplestia](https://www.instagram.com/byplestia) - Palestinian journalist and content creator
+- [@CensoredNws_](https://www.instagram.com/CensoredNws_) - Pro-Palestinian Activist
 - [@ceolawyer](https://www.instagram.com/ceolawyer) - Palestinian Lawyer, Activist
 - [@connect_palestine](https://www.instagram.com/connect_palestine) - An initiative by Global Shapers that aims to support financially Palestinians and link them with valuable job prospects.
 - [@connectinghumanity_](https://www.instagram.com/connectinghumanity_) - A non profit organization to connect vulnerable people in conflict zones
@@ -149,6 +154,7 @@
 - [@pal_action](https://instagram.com/pal_action) - The direct action network dismantling British complicity in Israeli apartheid
 - [@pal_legal](https://www.instagram.com/pal_legal) - Palestine Legal protects the civil and constitutional rights of people in the U.S. who speak out for Palestinian freedom.
 - [@pal48ps](https://www.instagram.com/pal48ps) - Our Palestine website, is mostly about Palestine before the Nakba, then the Nakba, and after the Nakba, the Jerusalem massacres, and the displaced Palestinian villages.
+- [@palestinechron](https://www.instagram.com/palestinechron) - The Palestine Chronicle is non-profit organization whose mission is to educate the general public by providing a forum that strives to highlight issues of relevance to human rights
 - [@palestinecinema](https://instagram.com/palestinecinema) - Palestine Cinema
 - [@palestinevoices](https://instagram.com/palestinevoices) - Learn about Palestine from Palestinians. Only we can write the narrative 🇵🇸
 - [@palestinianyouthmovement](https://instagram.com/palestinianyouthmovement) - A transnational, independent, grassroots movement of Palestinian & Arab youth struggling for the liberation of our homeland.
@@ -197,6 +203,7 @@
 - [@watanpalestine](https://instagram.com/watanpalestine) - An art studio dedicated to exploring Palestinian heritage & identity.
 - [@we_are_not_numbers](https://instagram.com/we_are_not_numbers) - WANN, a project of (https://instagram.com/EuroMedHR), pairs Palestinian writers with int'l mentors to write stories behind the numbers. Content is not censored by Euro-Med.
 - [@wissamgaza](https://www.instagram.com/wissamgaza) - Palestinian journalist and photographer
+- [@witness_org](https://www.instagram.com/witness_org) - WITNESS helps people use video and technology to protect and defend human rights.
 - [@wizard_bisan1](https://www.instagram.com/wizard_bisan1) - Palestinian journalist and content creator
 - [@wizard_bisan2](https://www.instagram.com/wizard_bisan2/) - Palestinian journalist  (Arabic)
 - [@y.f.f.p](https://www.instagram.com/y.f.f.p) - Youth in Britain. Globalise the Intifada! Fight for a Free Palestine!

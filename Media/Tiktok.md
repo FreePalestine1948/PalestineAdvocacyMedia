@@ -8,6 +8,7 @@
 - [@ahmedaboroos](https://www.tiktok.com/@ahmedaboroos) - Palestinian Journalist
 - [@ajplus](https://www.tiktok.com/@ajplus) - AJ+ is a global news community for the connected generation. They highlight human struggles and achievements, empower impassioned voices, and challenge the status quo.
 - [@ajplusarabi](https://www.tiktok.com/@ajplusarabi) - A digital space in which AJ+ shares stories concerned with presenting current events and topics inspired by contemporary Arab reality focusing presently on the Palestinian cause.
+- [@bookclubonpalesti](https://www.tiktok.com/@bookclubonpalesti) - Book Club on Palestine
 - [@byplestia](https://www.tiktok.com/@byplestia) - Palestinian journalist and content creator
 - [@codepinkalert](https://www.tiktok.com/@codepinkalert) -
 - [@democracynow.org](https://www.tiktok.com/@democracynow.org) - Independent, daily global news.

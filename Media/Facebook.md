@@ -8,7 +8,9 @@
 - [@ALI.H.J.Photography](https://www.facebook.com/ALI.H.J.Photography) - Palestinian photographer and journalist
 - [@aobaidaat](https://www.facebook.com/aobaidaat) - Palestinian journalist
 - [@ashraf.ramadan199](https://www.facebook.com/ashraf.ramadan199) - Palestinian journalist
+- [@aziz.rabah.56](https://www.facebook.com/aziz.rabah.56) - A Pro-Palestinian Activist
 - [@baselsharief](https://www.facebook.com/baselsharief) - Palestinian Video editor, and Filmmaker
+- [@bookclubonpalestine](https://www.facebook.com/groups/bookclubonpalestine) - Book Club on Palestine
 - [@BreakingTheSilenceIsrael](https://www.facebook.com/BreakingTheSilenceIsrael) - Breaking the Silence is veteran israeli soldiers exposing the reality of Occupied Territories, sparking public debate to end the occupation.
 - [@btselem](https://www.facebook.com/btselem) - The Israeli Information Center for Human Rights in the Occupied Territories.
 - [@ceolawyer](https://www.facebook.com/ceolawyer) - Palestinian Lawyer, Activist
@@ -16,6 +18,7 @@
 - [@EuroMedHR](https://www.facebook.com/EuroMedHR) - Euro-Mediterranean Human Rights Monitor
 - [@greg.stoker.7583](https://www.facebook.com/greg.stoker.7583) - Pro-Palestinian Military Specialist, Activist, Political Scientist / Analyst
 - [@haneenharara5](https://www.facebook.com/haneenharara5) - Palestinian journalist
+- [@ismpalestine](https://www.facebook.com/ismpalestine) - A Palestinian-led movement committed to resisting the long-entrenched and systematic oppression and dispossession of the Palestinian population, using non-violent, direct-action methods and principles
 - [@jewishvoiceforpeace](https://web.facebook.com/jewishvoiceforpeace) - Jews organizing toward Palestinian liberation and Judaism beyond Zionism
 - [@m.zaanoun](https://www.facebook.com/m.zaanoun) - Palestinian journalist and photographer
 - [@Maqdema](https://www.facebook.com/Maqdema) - Palestinian photographer and journalist
@@ -29,6 +32,7 @@
 - [@MotazAzayza](https://www.facebook.com/MotazAzayza/) - Palestinian journalist and photographer
 - [@ochaopt](https://www.facebook.com/ochaopt) - OCHA is part of the United Nations Secretariat and is led by the Under-Secretary-General for Humanitarian Affairs and Emergency Relief Coordinator.
 - [@owenpeterjones](https://www.facebook.com/owenpeterjones) - Pro-Palestinian Journalist, Political Scientist / Analyst, Author / Writer / Poet
+- [@palestinechronicle](https://www.facebook.com/palestinechronicle) - The Palestine Chronicle is non-profit organization whose mission is to educate the general public by providing a forum that strives to highlight issues of relevance to human rights
 - [@PalestineDeepDive](https://www.facebook.com/PalestineDeepDive) - New media proudly centring Palestinian voices. Connecting Palestinian realities to Western audiences.
 - [@PalestineLegal](https://www.facebook.com/PalestineLegal) - Palestine Legal protects the civil and constitutional rights of people in the U.S. who speak out for Palestinian freedom.
 - [@palestinemirror](https://www.facebook.com/palestinemirror) - Our Palestine website, is mostly about Palestine before the Nakba, then the Nakba, and after the Nakba, the Jerusalem massacres, and the displaced Palestinian villages.
@@ -39,11 +43,13 @@
 - [@salbadfree](https://www.facebook.com/salbadfree) - Palestinian journalist, photographer, and artist
 - [@Shathahanaysha1](https://www.facebook.com/Shathahanaysha1) - Palestinian journalist
 - [@sooom.love3](https://www.facebook.com/sooom.love3/) - Palestinian journalist, photographer, and filmmaker
+- [@Students4Palestine](https://www.facebook.com/Students4Palestine) - The Hague, Netherlands Student collective in solidarity with Palestine against Apartheid. End the Occupation
 - [@ThePalestinianMuseum](https://www.facebook.com/ThePalestinianMuseum) - The Palestinian Museum - Non-Governmental Association dedicated to supporting an open and dynamic Palestinian culture nationally and internationally. The Museum presents and engages with new perspectives on Palestinian history, society and culture.
 - [@ThePCRF](https://www.facebook.com/ThePCRF) - The PCRF is a non-political, non-profit organization dedicated to healing the wounds of war.
 - [@tom.zreika](https://www.facebook.com/tom.zreika) - Pro-Palestinian Lawyer, Humanitarian
 - [@visualizingpalestine](https://www.facebook.com/visualizingpalestine) - Visualizing Palestine uses data and research to visually communicate Palestinian experiences
 - [@wissam.nassar.3](https://www.facebook.com/wissam.nassar.3) - Palestinian journalist and photographer
+- [@WITNESS](https://www.facebook.com/WITNESS) - WITNESS helps people use video and technology to protect and defend human rights.
 - [@WOL.Palestine](https://www.facebook.com/WOL.Palestine) - WOL is a Palestinian led organization made up of dedicated youth, students, and community members building the movement for Palestine in NYC.
 - [@Zochrot](https://www.facebook.com/Zochrot) - Zochrot acts to promote Israeli Jewish society's awareness and responsibility for the Nakba, and the Return of Palestinian refugees as its imperative redress.
 - [ConnectPalestine](https://www.facebook.com/profile.php?id=61554641351624) - An initiative by Global Shapers that aims to support financially Palestinians and link them with valuable job prospects.

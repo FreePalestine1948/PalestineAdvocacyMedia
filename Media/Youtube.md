@@ -10,14 +10,17 @@
 - [@btselem](https://www.youtube.com/btselem) - The Israeli Information Center for Human Rights in the Occupied Territories.
 - [@EekadFacts](https://www.youtube.com/@EekadFacts) - Platform to publish facts and monitor fake news.
 - [@electronicIntifada](https://www.youtube.com/electronicIntifada) - The Electronic Intifada is an independent online news publication and educational resource focusing on Palestine, its people, politics, culture and place in the world.
+- [@EuroMedMonitor](https://www.youtube.com/c/EuroMedMonitor) - Euro-Mediterranean Human Rights Monitor on Israel-Palestinian Territories
 - [@GeorgeGallowayOfficial](https://www.youtube.com/@GeorgeGallowayOfficial) - A British Pro-Palestinian politician and broadcaster.
+- [@ISMMediaOffice](https://www.youtube.com/ISMMediaOffice) - A Palestinian-led movement committed to resisting the long-entrenched and systematic oppression and dispossession of the Palestinian population, using non-violent, direct-action methods and principles
 - [@MedicalAidPalestine](https://www.youtube.com/user/MedicalAidPalestine) - Working for the health and dignity of Palestinians living under occupation and as refugees
 - [@MetrasWebsite](https://www.youtube.com/@MetrasWebsite) - A digital media platform focused on Palestine, creating content and producing cognitive & journalistic materials, committed to the Palestinian cause and resistance.
 - [@MiddleEastEye](https://www.youtube.com/@MiddleEastEye) - An online news organisation that aims to be the primary portal of Middle East news featuring extensive coverage of Palestine.
 - [@mondoweissvideos](https://www.youtube.com/mondoweissvideos) - News and opinion about Palestine, israel, and the United States
-- [@musicpalestineheritage](https://youtube.com/@musicpalestineheritage?feature=shared) -
 - [@musicpalestineheritage](https://www.youtube.com/@musicpalestineheritage) - Archive, works and masters of the Palestinian and nationalist bands, and heritage and folklore songs
+- [@musicpalestineheritage](https://youtube.com/@musicpalestineheritage?feature=shared) -
 - [@ochaopt](https://www.youtube.com/user/ochaopt) - OCHA is part of the United Nations Secretariat and is led by the Under-Secretary-General for Humanitarian Affairs and Emergency Relief Coordinator.
+- [@PalestineChronicleTV](https://www.youtube.com/@PalestineChronicleTV) - The Palestine Chronicle is non-profit organization whose mission is to educate the general public by providing a forum that strives to highlight issues of relevance to human rights
 - [@PalestineDeepDive](https://www.youtube.com/@PalestineDeepDive) - New media proudly centring Palestinian voices. Connecting Palestinian realities to Western audiences.
 - [@palmuseum](https://www.youtube.com/palmuseum) - The Palestinian Museum - Non-Governmental Association dedicated to supporting an open and dynamic Palestinian culture nationally and internationally. The Museum presents and engages with new perspectives on Palestinian history, society and culture.
 - [@palqura9692](https://www.youtube.com/@palqura9692) - Encyclopedia of Palestinian Villages
@@ -26,6 +29,7 @@
 - [@TheCJWerlemanShow](https://www.youtube.com/@TheCJWerlemanShow) - A news media channel devoted to exposing and countering injustices in the Muslim world with a focus on Palestine.
 - [@TheCouncilOf3](https://www.youtube.com/@TheCouncilOf3) - A channel that shares politics, protests, and informative videos about Palestine.
 - [@thepalestinepod](https://www.youtube.com/thepalestinepod) - Brings stories, expert opinions, in depth analysis & news commentary from Palestine.
+- [@Witness](https://www.youtube.com/Witness) - WITNESS helps people use video and technology to protect and defend human rights.
 - [@Zochrot](https://www.youtube.com/channel/UCLDCqsL0KFbkcL3Nhrr_ITQ) - Zochrot acts to promote Israeli Jewish society's awareness and responsibility for the Nakba, and the Return of Palestinian refugees as its imperative redress.
 - [7amleh](https://www.youtube.com/channel/UCffBcFopuwnfYmf4VoI2cLQ) - The Arab Center for the Advancement of Social Media is a non-profit organization that advocates for Palestinian digital rights.
 - [Afro Palestinian](https://www.youtube.com/watch?v=Gl87Vsx1AwI&feature=youtu.be ) - More on afro-Palestinians

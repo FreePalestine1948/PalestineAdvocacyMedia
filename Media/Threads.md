@@ -36,6 +36,7 @@
 - [@greg.j.stoker](https://www.threads.net/@greg.j.stoker) - Pro-Palestinian Military Specialist, Activist, Political Scientist / Analyst
 - [@hamza_w_dahdooh](https://www.threads.net/@hamza_w_dahdooh) - Martyred Palestinian journalist
 - [@haneenharara](https://www.threads.net/@haneenharara) - Palestinian journalist
+- [@hannahtisa](https://www.threads.net/@hannahtisa) - A Pro-Palestinian Activist
 - [@imamomarsuleiman](https://www.threads.net/@imamomarsuleiman) - Palestinian Religious Leader, Humanitarian
 - [@ismail.jood](https://www.threads.net/@ismail.jood) - Palestinian journalist
 - [@jenanmatari](https://www.threads.net/@jenanmatari) - Palestinian Author / Writer / Poet, Activist

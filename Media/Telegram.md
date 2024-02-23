@@ -12,10 +12,13 @@
 - [@ashraframadan93](https://t.me/ashraframadan93) - Palestinian photographer and journalist
 - [@basell26](https://t.me/basell26) - Palestinian Video editor, and Filmmaker
 - [@cartoonpal](https://t.me/cartoonpal) - A channel that puts all the cartoons produced about Palestine in one basket
+- [@CensoredVoice](https://t.me/CensoredVoice) - Pro-Palestinian Activist
 - [@Dooz_News](https://t.me/Dooz_News) - A news agency that publishes news from the West Bank
 - [@Electrohizbullah](https://t.me/Electrohizbullah) - The official channel of the Electronic Media Department of the Islamic Resistance in Lebanon
 - [@esralshikh](https://t.me/esralshikh) - Palestinian journalist and activist
+- [@EuroMedHRar](https://t.me/EuroMedHRar) - Euro-Mediterranean Human Rights Monitor on Israel-Palestinian Territories
 - [@eyeonpal](https://t.me/eyeonpal) - Palestinian journalist
+- [@Gaza_shaheed](https://t.me/Gaza_shaheed) - Because they are not numbers, here we tell the story of the martyrs, their lives, their memories, and their dreams
 - [@gazanews96](https://t.me/gazanews96) - News channel for the journalist (https://www.instagram.com/abd.pix96)
 - [@hamaswestbank](https://t.me/hamaswestbank) - The official channel of the Hamas Movement in the West Bank
 - [@hpress](https://t.me/hpress) - The official channel of the Palestinian journalist Hassan Aslih
