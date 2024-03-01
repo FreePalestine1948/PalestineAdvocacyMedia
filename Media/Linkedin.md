@@ -30,3 +30,4 @@
 - [@unrwa](https://www.linkedin.com/company/unrwa/) - UNRWA provides assistance and protection to some 5.5 million Palestine refugees to help them achieve their full potential in human development.
 - [@upaconnect](https://www.linkedin.com/company/upaconnect/) - United Palestinian Appeal seeks to alleviate the suffering of Palestinians in the West Bank, the Gaza Strip and refugee camps in Lebanon and Jordan.
 - [@wengng](https://www.linkedin.com/in/wengng/recent-activity/all/) - Pro-Palestinian activist
+- [Institute-for-palestine-studies](https://www.linkedin.com/company/institute-for-palestine-studies) - The most reliable source of information and analysis on Palestine and the Israeli Occupation.

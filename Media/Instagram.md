@@ -156,6 +156,7 @@
 - [@pal48ps](https://www.instagram.com/pal48ps) - Our Palestine website, is mostly about Palestine before the Nakba, then the Nakba, and after the Nakba, the Jerusalem massacres, and the displaced Palestinian villages.
 - [@palestinechron](https://www.instagram.com/palestinechron) - The Palestine Chronicle is non-profit organization whose mission is to educate the general public by providing a forum that strives to highlight issues of relevance to human rights
 - [@palestinecinema](https://instagram.com/palestinecinema) - Palestine Cinema
+- [@palestinestudies](https://www.instagram.com/palestinestudies) - The most reliable source of information and analysis on Palestine and the Israeli Occupation.
 - [@palestinevoices](https://instagram.com/palestinevoices) - Learn about Palestine from Palestinians. Only we can write the narrative 🇵🇸
 - [@palestinianyouthmovement](https://instagram.com/palestinianyouthmovement) - A transnational, independent, grassroots movement of Palestinian & Arab youth struggling for the liberation of our homeland.
 - [@palfilminstitute](https://instagram.com/palfilminstitute) - For the development, promotion, and preservation of Palestine’s cinema

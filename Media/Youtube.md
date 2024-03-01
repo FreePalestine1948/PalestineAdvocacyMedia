@@ -19,9 +19,10 @@
 - [@mondoweissvideos](https://www.youtube.com/mondoweissvideos) - News and opinion about Palestine, israel, and the United States
 - [@musicpalestineheritage](https://www.youtube.com/@musicpalestineheritage) - Archive, works and masters of the Palestinian and nationalist bands, and heritage and folklore songs
 - [@musicpalestineheritage](https://youtube.com/@musicpalestineheritage?feature=shared) -
-- [@ochaopt](https://www.youtube.com/user/ochaopt) - OCHA is part of the United Nations Secretariat and is led by the Under-Secretary-General for Humanitarian Affairs and Emergency Relief Coordinator.
+- [@ochaopt](https://www.youtube.com/ochaopt) - Coordinates emergency response to save lives and protect people in humanitarian crises. We advocate for effective and principled humanitarian action by all, for all.
 - [@PalestineChronicleTV](https://www.youtube.com/@PalestineChronicleTV) - The Palestine Chronicle is non-profit organization whose mission is to educate the general public by providing a forum that strives to highlight issues of relevance to human rights
 - [@PalestineDeepDive](https://www.youtube.com/@PalestineDeepDive) - New media proudly centring Palestinian voices. Connecting Palestinian realities to Western audiences.
+- [@PalestineStudiesTV](https://www.youtube.com/user/PalestineStudiesTV) - The most reliable source of information and analysis on Palestine and the Israeli Occupation.
 - [@palmuseum](https://www.youtube.com/palmuseum) - The Palestinian Museum - Non-Governmental Association dedicated to supporting an open and dynamic Palestinian culture nationally and internationally. The Museum presents and engages with new perspectives on Palestinian history, society and culture.
 - [@palqura9692](https://www.youtube.com/@palqura9692) - Encyclopedia of Palestinian Villages
 - [@PCRFVideos](https://www.youtube.com/user/PCRFVideos) - The PCRF is a non-political, non-profit organization dedicated to healing the wounds of war.

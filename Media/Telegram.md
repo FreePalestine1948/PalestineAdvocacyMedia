@@ -25,6 +25,7 @@
 - [@httpsBbmFFFhNGNi](https://t.me/httpsBbmFFFhNGNi) - The official news channel of the Al-Quds Brigades
 - [@idfknowhatsgoingon](https://t.me/idfknowhatsgoingon) - Telegram channel for the Pro-Palestinian (https://www.instagram.com/greg.j.stoker)
 - [@InternetArabicBees](https://t.me/+r2FpThCgeQ9hMjE8) - Electronic Arabian Bee 🐝
+- [@ipstudies23](https://t.me/ipstudies23) - The most reliable source of information and analysis on Palestine and the Israeli Occupation.
 - [@is231](https://t.me/is231) - All news and events related to Palestine in general, and inside Palestine in particular; We cover it for you and share it in this group. First and foremost. This collection goes a long way and is the finest available.
 - [@IsraelsCrimes](https://t.me/IsraelsCrimes) - A channel dedicated to exposing Israeli war crimes in Gaza during the ongoing aggression in October 2023
 - [@IssamRimawi](https://t.me/IssamRimawi) - Palestinian journalist and photographer

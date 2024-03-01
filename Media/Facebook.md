@@ -38,6 +38,7 @@
 - [@palestinemirror](https://www.facebook.com/palestinemirror) - Our Palestine website, is mostly about Palestine before the Nakba, then the Nakba, and after the Nakba, the Jerusalem massacres, and the displaced Palestinian villages.
 - [@palestinesolidarityuk](https://www.facebook.com/palestinesolidarityuk) - The Palestine Solidarity Campaign (PSC) has become the largest and most active campaigning organisation in the UK on the issue of Palestine.
 - [@palqura](https://www.facebook.com/palqura) - Encyclopedia of Palestinian Villages
+- [@palstudies](https://www.facebook.com/palstudies) - The most reliable source of information and analysis on Palestine and the Israeli Occupation.
 - [@PCBSPalestine](https://www.facebook.com/PCBSPalestine) - The Palestinian Central Bureau of Statistics aims to develop and enhance the Palestinian official statistical system
 - [@Remi Kanazi](https://www.facebook.com/profile.php?id=100004038072521) - Palestinian Author / Writer / Poet, Activist
 - [@salbadfree](https://www.facebook.com/salbadfree) - Palestinian journalist, photographer, and artist
@@ -55,6 +56,7 @@
 - [ConnectPalestine](https://www.facebook.com/profile.php?id=61554641351624) - An initiative by Global Shapers that aims to support financially Palestinians and link them with valuable job prospects.
 - [Fuad Khammash](https://www.facebook.com/profile.php?id=100008620265486) - Palestinian journalist and photographer
 - [Lama Jamous](https://www.facebook.com/profile.php?id=61555172161542) - Young Palestinian journalist
+- [Middle East Research and Information Project (MERIP)](https://www.facebook.com/MERIP1971) - The Middle East Research & Information Project (MERIP) has provided critical, alternative reporting on the Middle East for 50 years.
 - [mohamaed qndeel](https://www.facebook.com/profile.php?id=100049537724279) - Palestinian journalist and humanitarian
 - [mustafa thraya](https://www.facebook.com/profile.php?id=61552654074781) - Martyred Palestinian journalist
 - [Omar Aldirawi](https://www.facebook.com/profile.php?id=100037364133094) - Palestinian journalist

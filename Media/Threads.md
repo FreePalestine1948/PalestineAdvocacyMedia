@@ -61,6 +61,7 @@
 - [@owenjones84](https://www.threads.net/@owenjones84) - Pro-Palestinian Journalist, Political Scientist / Analyst, Author / Writer / Poet
 - [@pal_action](https://www.threads.net/@pal_action) - The direct action network dismantling British complicity with Israeli apartheid
 - [@pal48ps](https://www.threads.net/@pal48ps) - Our Palestine website, is mostly about Palestine before the Nakba, then the Nakba, and after the Nakba, the Jerusalem massacres, and the displaced Palestinian villages.
+- [@palestinestudies](https://www.threads.net/@palestinestudies) - The most reliable source of information and analysis on Palestine and the Israeli Occupation.
 - [@pcbspalestine](https://www.threads.net/@pcbspalestine) - The Palestinian Central Bureau of Statistics aims to develop and enhance the Palestinian official statistical system
 - [@pomegranates](https://www.threads.net/@pomegranates) - Palestinian Activist
 - [@princekouta](https://www.threads.net/@princekouta) - Palestinian healthcare worker

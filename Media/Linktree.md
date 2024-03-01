@@ -36,6 +36,7 @@
 - [@palestinedeepdive](https://linktr.ee/palestinedeepdive) - New media proudly centring Palestinian voices. Connecting Palestinian realities to Western audiences.
 - [@palestinemasterlist](https://linktr.ee/palestinemasterlist) - Resources on the oppression towards Palestinians & how to help
 - [@palestineresources](https://linktr.ee/palestineresources) - Resources on Palestine
+- [@palestinestudies](https://linktr.ee/palestinestudies) - The most reliable source of information and analysis on Palestine and the Israeli Occupation.
 - [@palestineswg](https://linktr.ee/palestineswg) - A Collection of resources to take action in solidarity with Palestine
 - [@palestinianyouthmovement](https://linktr.ee/palestinianyouthmovement) - A Collection of resources for the Palestinian Youth Movement
 - [@palmuseum](https://linktr.ee/palmuseum) - The Palestinian Museum - Non-Governmental Association dedicated to supporting an open and dynamic Palestinian culture nationally and internationally. The Museum presents and engages with new perspectives on Palestinian history, society and culture.

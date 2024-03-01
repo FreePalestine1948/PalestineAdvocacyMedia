@@ -83,6 +83,7 @@
 - [@matsda2sh](https://twitter.com/matsda2sh) - Agency Fights fake news and misinformation.
 - [@MaxBlumenthal](https://twitter.com/MaxBlumenthal) - Pro-Palestinian Journalist, Activist
 - [@medicalaidpal](https://twitter.com/medicalaidpal) - Working for the health and dignity of Palestinians living under occupation and as refugees
+- [@meriponline](https://twitter.com/meriponline) - The Middle East Research & Information Project (MERIP) has provided critical, alternative reporting on the Middle East for 50 years.
 - [@metras_global](https://twitter.com/@metras_global) - A volunteering initiative translating content about Palestine based on (https://twitter.com/metraswebsite)
 - [@metraswebsite](https://twitter.com/metraswebsite) - A digital media platform focused on Palestine, creating content and producing cognitive & journalistic materials, committed to the Palestinian cause and resistance.
 - [@MhamedKrichen](https://twitter.com/MhamedKrichen) - Aljazeera News Anchor (CPJ Board Member 2011-2021). Tunisian journalist On Al Jazeera TV since its founding in 1996, he presents the weekly “Scenarios” program
@@ -100,6 +101,7 @@
 - [@nooranhamdan](https://twitter.com/@nooranhamdan) - A Pro-Palestinian activist
 - [@ochaopt](https://twitter.com/ochaopt) - OCHA is part of the United Nations Secretariat and is led by the Under-Secretary-General for Humanitarian Affairs and Emergency Relief Coordinator.
 - [@Omar_Gaza](https://twitter.com/@Omar_Gaza) - A Palestinian activist and journalist
+- [@ourgaza_com](https://twitter.com/ourgaza_com) - Learn about Gaza through a different lens. Help the people in need, cancel companies, and keep the new generation informed.
 - [@owenjones84](https://twitter.com/owenjones84) - Pro-Palestinian Journalist, Political Scientist / Analyst, Author / Writer / Poet
 - [@PACBI](https://twitter.com/@PACBI) - The Palestinian Campaign for the Academic & Cultural Boycott of Israel challenges Israeli apartheid via academic, cultural, sports & anti-pinkwashing campaigns.
 - [@Pal_action](https://twitter.com/Pal_action) - The direct action network dismantling British complicity with Israeli apartheid
@@ -116,9 +118,11 @@
 - [@palestinepod](https://twitter.com/palestinepod) - Brings stories, expert opinions, in depth analysis & news commentary from Palestine.
 - [@PalestineRCS](https://twitter.com/PalestineRCS) - (PRCS) officially founded in 1968, is a national humanitarian organization that caters to the health and welfare of the Palestinian people and others in need.
 - [@palestinian_the](https://twitter.com/palestinian_the) - The Palestinian Archive الأرشيف الفلسطيني
+- [@palestinian_the](https://x.com/palestinian_the) - The Palestinian Archive, A personal page dedicated to archives about Palestine for #Palestine | And an attempt to preserve memory and collect what is available from lost, stolen or scattered archives Not affiliated with an organization or faction
 - [@palinfoen](https://twitter.com/@palinfoen) - Palestinian Information Center: Voice Of #Palestine. Reports & news 24/7
 - [@palmuseum](https://twitter.com/palmuseum) - The Palestinian Museum - Non-Governmental Association dedicated to supporting an open and dynamic Palestinian culture nationally and internationally. The Museum presents and engages with new perspectives on Palestinian history, society and culture.
 - [@PalStudies](https://twitter.com/@PalStudies) - Oldest research publisher of academic journals, books, databases, &stories on Palestine & the Palestinians
+- [@PalStudies](https://twitter.com/PalStudies) - The most reliable source of information and analysis on Palestine and the Israeli Occupation.
 - [@palyouthmvmt](https://twitter.com/@palyouthmvmt) - The Palestinian Youth Movement (PYM) is a transnational, independent, grassroots movement of young Palestinians in Palestine and in exile worldwide
 - [@palyouthmvmt](https://twitter.com/palyouthmvmt) - Within Our Lifetime is a Palestinian-led community organization that has been building the movement for Palestine in NYC since 2015.
 - [@PCBSPalestine](https://twitter.com/PCBSPalestine) - The Palestinian Central Bureau of Statistics aims to develop and enhance the Palestinian official statistical system
