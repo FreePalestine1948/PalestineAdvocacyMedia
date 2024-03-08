@@ -42,6 +42,7 @@
 - [@DrHaniAlDali](https://twitter.com/DrHaniAlDali) - An expert in Palestinian resistance affairsa doctorate in strategic planninga Palestinian in passion and identitythe son of Gaza
 - [@EekadFacts](https://twitter.com/EekadFacts) - Arab region’s first open-source intelligence platform that provides data-driven analysis.
 - [@elivalley](https://twitter.com/elivalley) - Cartoonist, and Pro-Palestinian activist
+- [@EnglishGaza](https://twitter.com/EnglishGaza) - Gaza  Now news - English
 - [@Esralshikh](https://twitter.com/Esralshikh) - A Pro-Palestinian Journalist, researcher in social sciences and history
 - [@EuroMedHRar](https://twitter.com/EuroMedHRar) - Euro-Mediterranean Human Rights Monitor
 - [@Eyeonpal](https://twitter.com/@Eyeonpal) - Latest updates on palestine
@@ -51,6 +52,7 @@
 - [@FirasPalestine](https://twitter.com/FirasPalestine) - Palestine • Political Analyst, Palestinian Nationalist
 - [@Gaza_notice](https://twitter.com/Gaza_notice) - A special page to expose the crimes of the Israeli occupation in Gaza and Palestine
 - [@Gaza_Shaheed](https://twitter.com/Gaza_Shaheed) - Because they are not numbers, here we tell the story of the martyrs, their lives, their memories, and their dreams
+- [@gazaalannet](https://twitter.com/gazaalannet) - Gaza Now news - English
 - [@GazaMutualAid](https://twitter.com/GazaMutualAid) - They organize mutual aid funds for people in Gaza.
 - [@gazanotice](https://twitter.com/gazanotice) - Gaza Notifications shares media & news by Palestinian journalists in Gaza Strip
 - [@gazapassages](https://twitter.com/gazapassages) - Texts by Palestinian writers in Gaza
@@ -99,6 +101,7 @@
 - [@NewpressPs](https://twitter.com/@NewpressPs) - A Palestinian news agency in Arabic
 - [@newsnajah](https://twitter.com/newsnajah) - Najah newsletter
 - [@nooranhamdan](https://twitter.com/@nooranhamdan) - A Pro-Palestinian activist
+- [@nowgnna](https://twitter.com/nowgnna) - Gaza  Now news - Arabic
 - [@ochaopt](https://twitter.com/ochaopt) - OCHA is part of the United Nations Secretariat and is led by the Under-Secretary-General for Humanitarian Affairs and Emergency Relief Coordinator.
 - [@Omar_Gaza](https://twitter.com/@Omar_Gaza) - A Palestinian activist and journalist
 - [@ourgaza_com](https://twitter.com/ourgaza_com) - Learn about Gaza through a different lens. Help the people in need, cancel companies, and keep the new generation informed.

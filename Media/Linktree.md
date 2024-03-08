@@ -13,6 +13,7 @@
 - [@eyeonpalestine](https://linktr.ee/eyeonpalestine) - A Collection of social accounts for eye.on.palestine organization that shares and documents the crimes of the Israeli occupation against the Palestinian people
 - [@freegaza](https://linktr.ee/freegaza) - A Collection of resources to Learn More About Israeli Apartheid
 - [@freepalestine](https://linktr.ee/freepalestine) - Some links to donate to Palestine and educate yourself on the crisis!
+- [@freepalestinelinks22](https://linktr.ee/freepalestinelinks22) - List of Resources you can use to help Free Palestine
 - [@greg.j.stoker](https://linktr.ee/greg.j.stoker) - Pro-Palestinian Military Specialist, Activist, Political Scientist / Analyst
 - [@helpoutpalestine](https://linktr.ee/helpoutpalestine) - A Collection of links to donate to Palestine or educate yourself on the crisis!
 - [@HelpPalestine](https://linktr.ee/HelpPalestine) - Resources to provide support and allyship to Palestine.

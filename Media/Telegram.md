@@ -19,6 +19,8 @@
 - [@EuroMedHRar](https://t.me/EuroMedHRar) - Euro-Mediterranean Human Rights Monitor on Israel-Palestinian Territories
 - [@eyeonpal](https://t.me/eyeonpal) - Palestinian journalist
 - [@Gaza_shaheed](https://t.me/Gaza_shaheed) - Because they are not numbers, here we tell the story of the martyrs, their lives, their memories, and their dreams
+- [@gazaalannet](https://t.me/gazaalannet) - Gaza Now news - arabic
+- [@gazaalanpa](https://t.me/gazaalanpa) - Gaza Now news - English
 - [@gazanews96](https://t.me/gazanews96) - News channel for the journalist (https://www.instagram.com/abd.pix96)
 - [@hamaswestbank](https://t.me/hamaswestbank) - The official channel of the Hamas Movement in the West Bank
 - [@hpress](https://t.me/hpress) - The official channel of the Palestinian journalist Hassan Aslih
