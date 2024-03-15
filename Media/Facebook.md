@@ -20,6 +20,7 @@
 - [@haneenharara5](https://www.facebook.com/haneenharara5) - Palestinian journalist
 - [@ismpalestine](https://www.facebook.com/ismpalestine) - A Palestinian-led movement committed to resisting the long-entrenched and systematic oppression and dispossession of the Palestinian population, using non-violent, direct-action methods and principles
 - [@jewishvoiceforpeace](https://web.facebook.com/jewishvoiceforpeace) - Jews organizing toward Palestinian liberation and Judaism beyond Zionism
+- [@Librarians2Palestine](https://www.facebook.com/Librarians2Palestine) - Information workers in solidarity with the Palestinian struggle for self-determination.
 - [@m.zaanoun](https://www.facebook.com/m.zaanoun) - Palestinian journalist and photographer
 - [@Maqdema](https://www.facebook.com/Maqdema) - Palestinian photographer and journalist
 - [@MedicalAidforPalestinians](https://www.facebook.com/MedicalAidforPalestinians) - Working for the health and dignity of Palestinians living under occupation and as refugees

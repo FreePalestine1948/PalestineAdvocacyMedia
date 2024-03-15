@@ -16,6 +16,7 @@
 - [@AliAbunimah](https://twitter.com/@AliAbunimah) - Independent worker, Author of “One Country” and “The Battle for Justice in Palestine
 - [@aljarmaqnet](https://twitter.com/@aljarmaqnet) - A Palestinian news agency in Arabic
 - [@Almeqdad](https://twitter.com/@Almeqdad) - Palestinian writer and researcher
+- [@AlMezanCenter](https://twitter.com/AlMezanCenter) - Gaza-based human rights organization defending the inalienable rights of the Palestinian people and pursuing accountability for violations of international law.
 - [@Alqastalps](https://twitter.com/@Alqastalps) - A Palestinian network specialized in the news about Jerusalem and its environs
 - [@Alshabaka](https://twitter.com/@Alshabaka) - The Palestinian Policy Network. An independent, nonprofit think tank without borders. Arabic & English. RT ≠ Endorsement
 - [@AManInTheSun](https://twitter.com/@AManInTheSun) - A Pro-Palestinian activist
@@ -33,6 +34,7 @@
 - [@btselem](https://twitter.com/btselem) - The Israeli Information Center for Human Rights in the Occupied Territories.
 - [@btsisrael](https://twitter.com/btsisrael) - Breaking the Silence is veteran israeli soldiers exposing the reality of Occupied Territories, sparking public debate to end the occupation.
 - [@Call2actionnow](https://twitter.com/Call2actionnow) - Global Call To Action
+- [@cecalli_helper](https://twitter.com/Cecalli_Helper) - Calling out nuke propaganda & nuke pushers because life is precious #NoNukes & up to date Gaza related news.
 - [@CensoredNws](https://twitter.com/CensoredNws) - Pro-Palestinian Activist
 - [@CensoredVoiceX](https://twitter.com/CensoredVoiceX) - CensoredVoiceX is a backup account for (https://twitter.com/PalestineNW)
 - [@connectpal7](https://twitter.com/connectpal7) - An initiative by Global Shapers that aims to support financially Palestinians and link them with valuable job prospects.
@@ -64,6 +66,7 @@
 - [@hamzah_1948](https://twitter.com/hamzah_1948) - Palestinian Content Creator
 - [@Hideous_Str](https://twitter.com/Hideous_Str) - A Pro-Palestinian activist
 - [@holylandsalt](https://twitter.com/@holylandsalt) - one of the living stones in the holy land, a Palestinian Christian activist that shares about the Christian holy land
+- [@ICJPalestine](https://twitter.com/ICJPalestine) - International Centre of Justice for Palestinians.
 - [@intifada](https://twitter.com/@intifada) - Palestine’s weapon of mass instruction.
 - [@intifada](https://twitter.com/intifada) - The Electronic Intifada is an independent online news publication and educational resource focusing on Palestine, its people, politics, culture and place in the world.
 - [@ISMPalestine](https://twitter.com/ISMPalestine) - a Palestinian-led movement committed to resisting the long-entrenched and systematic oppression and dispossession of the Palestinian population, using non-violent, direct-action methods and principles
@@ -73,6 +76,7 @@
 - [@jvplive](https://twitter.com/jvplive) - Jews organizing toward Palestinian liberation and Judaism beyond Zionism
 - [@KintsugiMuslim](https://twitter.com/KintsugiMuslim) - A Pro-Palestinian activist
 - [@les_spectateurs](https://twitter.com/les_spectateurs) - News, Media, Sports, and data from around the world. (French)
+- [@Librarians2Pal](https://twitter.com/Librarians2Pal) - Information workers in solidarity with the Palestinian struggle for self-determination.
 - [@LinahAlsaafin](https://twitter.com/@LinahAlsaafin) - An online producer with Al Jazeera English
 - [@LormondAbelard](https://twitter.com/LormondAbelard) - A Pro-Palestinian Activist
 - [@Lowkey0nline](https://twitter.com/Lowkey0nline) - Pro-Palestinian Activist, Artist

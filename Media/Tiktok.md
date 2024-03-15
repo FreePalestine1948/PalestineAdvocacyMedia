@@ -16,6 +16,7 @@
 - [@eye.on.palestine](https://www.tiktok.com/@eyes.on.palestine) - Shares and documents the crimes of the Israeli occupation against the Palestinian people
 - [@gbltock](https://www.tiktok.com/@gbltock) - Pro-Palestinian activist
 - [@ibrahimqannan3](https://www.tiktok.com/@ibrahimqannan3) - A Palestinian activist and journalist
+- [@ICJPalestine](https://tiktok.com/@ICJPalestine) - International Centre of Justice for Palestinians.
 - [@kekasihrasulullah_](https://www.tiktok.com/@kekasihrasulullah_) - Pro-Palestinian activist
 - [@lama.jamous9](https://www.tiktok.com/@lama.jamous9) - Young Palestinian journalist
 - [@middleeasteye](https://www.tiktok.com/@middleeasteye) - Independent Middle East and North Africa news.

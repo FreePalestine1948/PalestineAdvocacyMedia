@@ -2,7 +2,6 @@
 
 
 - [@_doaa_mohammad](https://www.instagram.com/_doaa_mohammad) - Palestinian journalist and photographer
-- [@/](https://www.instagram.com/ismpalestine/) - A Palestinian-led movement committed to resisting the long-entrenched and systematic oppression and dispossession of the Palestinian population, using non-violent, direct-action methods and principles
 - [@7amleh](https://www.instagram.com/7amleh) - The Arab Center for the Advancement of Social Media is a non-profit organization that advocates for Palestinian digital rights.
 - [@a7mhisham](https://www.instagram.com/a7mhisham) - Palestinian journalist and content creator
 - [@a7mhisham1](https://www.instagram.com/a7mhisham1/) - Backup account for (https://www.instagram.com/a7mhisham)
@@ -94,10 +93,12 @@
 - [@hiddenpalestine](https://instagram.com/hiddenpalestine) - A collection of everything from home 🇵🇸
 - [@hossamwaill](https://www.instagram.com/hossamwaill) - Palestinian journalist and content creator humanitarian
 - [@hzomlot](https://www.instagram.com/hzomlot) - Palestinian Political Scientist / Analyst, Ambassador
+- [@ICJPalestine](https://www.instagram.com/ICJPalestine) - International Centre of Justice for Palestinians.
 - [@imaginingtheholy](https://instagram.com/imaginingtheholy) - Palestine + National Geographic since 1909. Images courtesy of National Geographic Society Special Collections.
 - [@imamomarsuleiman](https://www.instagram.com/imamomarsuleiman) - Palestinian Religious Leader, Humanitarian
 - [@inaraorg](https://www.instagram.com/inaraorg) - INARA’s mission is to fill in the gaps in access to life-altering services for children in communities impacted by human-induced and natural disasters
 - [@ismail.jood](https://www.instagram.com/ismail.jood) - Palestinian journalist and content creator
+- [@ismpalestine](https://www.instagram.com/ismpalestine) - A Palestinian-led movement committed to resisting the long-entrenched and systematic oppression and dispossession of the Palestinian population, using non-violent, direct-action methods and principles
 - [@issam.rimawi](https://www.instagram.com/issam.rimawi) - Palestinian journalist and photographer
 - [@itsmadeinpalestine](https://instagram.com/itsmadeinpalestine) - Brings  you stories, expert opinions, in depth analysis & news commentary from Palestine.
 - [@jenanmatari](https://www.instagram.com/jenanmatari) - Palestinian Author / Writer / Poet, Activist
@@ -115,6 +116,7 @@
 - [@letstalkpalestine.de](https://instagram.com/letstalkpalestine.de) - Let’s Talk Palestine Deutsch
 - [@letstalkpalestine.es](https://instagram.com/letstalkpalestine.es) - Let’s Talk Palestine Español
 - [@letstalkpalestine.fr](https://instagram.com/letstalkpalestine.fr) - Let’s Talk Palestine Français
+- [@librarianswithpalestine](https://www.instagram.com/librarianswithpalestine) - Information workers in solidarity with the Palestinian struggle for self-determination.
 - [@lowkeyonline](https://www.instagram.com/lowkeyonline) - Pro-Palestinian Activist, Artist
 - [@m.z.gaza](https://www.instagram.com/m.z.gaza) - Palestinian journalist and photographer
 - [@mahdy_zourob](https://www.instagram.com/mahdy_zourob) - Palestinian journalist and photographer

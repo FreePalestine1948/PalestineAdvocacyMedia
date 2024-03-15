@@ -23,6 +23,7 @@
 - [@Jupiterbaal](https://linktr.ee/Jupiterbaal) - Pro-Palestinian Activist
 - [@karterzaher](https://linktr.ee/karterzaher) - Pro-Palestinian Activist, Artist
 - [@letstalkpalestine](https://linktr.ee/letstalkpalestine) - A Collection of a Pro-Palestinian activists' social accounts initiative to educate and raise awareness about the Palestinian struggle for freedom and liberation.
+- [@librarianswithpalestine](https://linktr.ee/librarianswithpalestine) - Information workers in solidarity with the Palestinian struggle for self-determination.
 - [@m7mdkurd](https://linktr.ee/m7mdkurd) - A Collection of resources for the writer and activist Mohammed Kurd
 - [@MedicalAidforPalestinians](https://linktr.ee/MedicalAidforPalestinians) - Working for the health and dignity of Palestinians living under occupation and as refugees
 - [@meganbrice](https://linktr.ee/meganbrice) - Pro-Palestinian Author / Writer / Poet, Activist, Content Creator

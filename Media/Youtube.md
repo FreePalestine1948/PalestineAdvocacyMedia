@@ -12,6 +12,7 @@
 - [@electronicIntifada](https://www.youtube.com/electronicIntifada) - The Electronic Intifada is an independent online news publication and educational resource focusing on Palestine, its people, politics, culture and place in the world.
 - [@EuroMedMonitor](https://www.youtube.com/c/EuroMedMonitor) - Euro-Mediterranean Human Rights Monitor on Israel-Palestinian Territories
 - [@GeorgeGallowayOfficial](https://www.youtube.com/@GeorgeGallowayOfficial) - A British Pro-Palestinian politician and broadcaster.
+- [@icjpalestine](https://www.youtube.com/@icjpalestine) - International Centre of Justice for Palestinians.
 - [@ISMMediaOffice](https://www.youtube.com/ISMMediaOffice) - A Palestinian-led movement committed to resisting the long-entrenched and systematic oppression and dispossession of the Palestinian population, using non-violent, direct-action methods and principles
 - [@MedicalAidPalestine](https://www.youtube.com/user/MedicalAidPalestine) - Working for the health and dignity of Palestinians living under occupation and as refugees
 - [@MetrasWebsite](https://www.youtube.com/@MetrasWebsite) - A digital media platform focused on Palestine, creating content and producing cognitive & journalistic materials, committed to the Palestinian cause and resistance.
@@ -31,6 +32,7 @@
 - [@TheCouncilOf3](https://www.youtube.com/@TheCouncilOf3) - A channel that shares politics, protests, and informative videos about Palestine.
 - [@thepalestinepod](https://www.youtube.com/thepalestinepod) - Brings stories, expert opinions, in depth analysis & news commentary from Palestine.
 - [@Witness](https://www.youtube.com/Witness) - WITNESS helps people use video and technology to protect and defend human rights.
+- [@zacharyfoster7426](https://www.youtube.com/@zacharyfoster7426) - Palestine, in your Inbox: Free Content about Palestine
 - [@Zochrot](https://www.youtube.com/channel/UCLDCqsL0KFbkcL3Nhrr_ITQ) - Zochrot acts to promote Israeli Jewish society's awareness and responsibility for the Nakba, and the Return of Palestinian refugees as its imperative redress.
 - [7amleh](https://www.youtube.com/channel/UCffBcFopuwnfYmf4VoI2cLQ) - The Arab Center for the Advancement of Social Media is a non-profit organization that advocates for Palestinian digital rights.
 - [Afro Palestinian](https://www.youtube.com/watch?v=Gl87Vsx1AwI&feature=youtu.be ) - More on afro-Palestinians
