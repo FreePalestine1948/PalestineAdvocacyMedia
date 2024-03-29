@@ -33,10 +33,12 @@
 - [@MotazAzayza](https://www.facebook.com/MotazAzayza/) - Palestinian journalist and photographer
 - [@ochaopt](https://www.facebook.com/ochaopt) - OCHA is part of the United Nations Secretariat and is led by the Under-Secretary-General for Humanitarian Affairs and Emergency Relief Coordinator.
 - [@owenpeterjones](https://www.facebook.com/owenpeterjones) - Pro-Palestinian Journalist, Political Scientist / Analyst, Author / Writer / Poet
+- [@Palestine.at.UN](https://www.facebook.com/Palestine.at.UN) - Permanent Observer Mission of Palestine to the United Nations
 - [@palestinechronicle](https://www.facebook.com/palestinechronicle) - The Palestine Chronicle is non-profit organization whose mission is to educate the general public by providing a forum that strives to highlight issues of relevance to human rights
 - [@PalestineDeepDive](https://www.facebook.com/PalestineDeepDive) - New media proudly centring Palestinian voices. Connecting Palestinian realities to Western audiences.
 - [@PalestineLegal](https://www.facebook.com/PalestineLegal) - Palestine Legal protects the civil and constitutional rights of people in the U.S. who speak out for Palestinian freedom.
 - [@palestinemirror](https://www.facebook.com/palestinemirror) - Our Palestine website, is mostly about Palestine before the Nakba, then the Nakba, and after the Nakba, the Jerusalem massacres, and the displaced Palestinian villages.
+- [@PalestineRCS](https://www.facebook.com/PalestineRCS) - Palestine Red Crescent Society (PRCS) officially founded in 1968, is a national humanitarian organization caters to the health and welfare of the Palestinian people and others in need.
 - [@palestinesolidarityuk](https://www.facebook.com/palestinesolidarityuk) - The Palestine Solidarity Campaign (PSC) has become the largest and most active campaigning organisation in the UK on the issue of Palestine.
 - [@palqura](https://www.facebook.com/palqura) - Encyclopedia of Palestinian Villages
 - [@palstudies](https://www.facebook.com/palstudies) - The most reliable source of information and analysis on Palestine and the Israeli Occupation.

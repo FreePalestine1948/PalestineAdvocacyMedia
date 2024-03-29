@@ -11,6 +11,7 @@
 - [@bookclubonpalesti](https://www.tiktok.com/@bookclubonpalesti) - Book Club on Palestine
 - [@byplestia](https://www.tiktok.com/@byplestia) - Palestinian journalist and content creator
 - [@codepinkalert](https://www.tiktok.com/@codepinkalert) -
+- [@countercoalition](https://www.tiktok.com/@countercoalition) - Countering Money's Influence in American Democracy
 - [@democracynow.org](https://www.tiktok.com/@democracynow.org) - Independent, daily global news.
 - [@doaalbaz](https://www.tiktok.com/@doaalbaz) - Palestinian journalist and photographer
 - [@eye.on.palestine](https://www.tiktok.com/@eyes.on.palestine) - Shares and documents the crimes of the Israeli occupation against the Palestinian people

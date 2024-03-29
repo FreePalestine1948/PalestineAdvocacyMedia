@@ -23,10 +23,12 @@
 - [@ochaopt](https://www.youtube.com/ochaopt) - Coordinates emergency response to save lives and protect people in humanitarian crises. We advocate for effective and principled humanitarian action by all, for all.
 - [@PalestineChronicleTV](https://www.youtube.com/@PalestineChronicleTV) - The Palestine Chronicle is non-profit organization whose mission is to educate the general public by providing a forum that strives to highlight issues of relevance to human rights
 - [@PalestineDeepDive](https://www.youtube.com/@PalestineDeepDive) - New media proudly centring Palestinian voices. Connecting Palestinian realities to Western audiences.
+- [@PalestineRCS](https://www.youtube.com/user/PalestineRCS) - Palestine Red Crescent Society (PRCS) officially founded in 1968, is a national humanitarian organization caters to the health and welfare of the Palestinian people and others in need.
 - [@PalestineStudiesTV](https://www.youtube.com/user/PalestineStudiesTV) - The most reliable source of information and analysis on Palestine and the Israeli Occupation.
 - [@palmuseum](https://www.youtube.com/palmuseum) - The Palestinian Museum - Non-Governmental Association dedicated to supporting an open and dynamic Palestinian culture nationally and internationally. The Museum presents and engages with new perspectives on Palestinian history, society and culture.
 - [@palqura9692](https://www.youtube.com/@palqura9692) - Encyclopedia of Palestinian Villages
 - [@PCRFVideos](https://www.youtube.com/user/PCRFVideos) - The PCRF is a non-political, non-profit organization dedicated to healing the wounds of war.
+- [@PLOMEDIA1](https://www.youtube.com/PLOMEDIA1) - The PLO Negotiations Affairs Department (NAD)
 - [@shovrim](https://www.youtube.com/shovrim) - Breaking the Silence is veteran israeli soldiers exposing the reality of Occupied Territories, sparking public debate to end the occupation.
 - [@TheCJWerlemanShow](https://www.youtube.com/@TheCJWerlemanShow) - A news media channel devoted to exposing and countering injustices in the Muslim world with a focus on Palestine.
 - [@TheCouncilOf3](https://www.youtube.com/@TheCouncilOf3) - A channel that shares politics, protests, and informative videos about Palestine.

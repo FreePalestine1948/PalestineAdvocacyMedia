@@ -55,6 +55,7 @@
 - [@PalestineResist](https://t.me/PalestineResist) -
 - [@palmoh](https://t.me/palmoh) - The official channel of the Palestinian Ministry of Health
 - [@Palqura](https://t.me/Palqura) - Encyclopedia of Palestinian Villages
+- [@Palrcs](https://t.me/Palrcs) - Palestine Red Crescent Society (PRCS) officially founded in 1968, is a national humanitarian organization caters to the health and welfare of the Palestinian people and others in need.
 - [@qassam_WB](https://t.me/qassam_WB) - The official channel of the Martyr Izz al-Din al-Qassam Brigades in the West Bank
 - [@qassambrigades](https://t.me/qassambrigades) - The only official channel of the Martyr Izz al-Din al-Qassam BrigadesPalestine
 - [@Rahhal19](https://t.me/Rahhal19) - Channel for Diary of Palestinian men

@@ -38,6 +38,7 @@
 - [@CensoredNws](https://twitter.com/CensoredNws) - Pro-Palestinian Activist
 - [@CensoredVoiceX](https://twitter.com/CensoredVoiceX) - CensoredVoiceX is a backup account for (https://twitter.com/PalestineNW)
 - [@connectpal7](https://twitter.com/connectpal7) - An initiative by Global Shapers that aims to support financially Palestinians and link them with valuable job prospects.
+- [@countercoa](https://twitter.com/countercoa) - Countering Money's Influence in American Democracy
 - [@crimesbyisrael](https://twitter.com/crimesbyisrael) - Announces updates to the "Crimes by Israel" compendium (crimesbyisrael.com), which is periodically updated. Posts crucial incidents from the document for a quick view of the most severe crimes and the international laws they violate.
 - [@davidsheen](https://twitter.com/davidsheen) - Independent journalist (http://davidsheen.com/), and Pro-Palestinian activist
 - [@DecolonizePS](https://twitter.com/@DecolonizePS) - DecolonizePalestine, your source for myth-busting & more
@@ -101,7 +102,7 @@
 - [@mshinqiti](https://twitter.com/mshinqiti) - A Pro-Palestinian activist
 - [@MuhammadSmiry](https://twitter.com/@MuhammadSmiry) - A Palestinian activist and journalist lives in Gaza
 - [@MunaHawwa](https://x.com/MunaHawwa) -
-- [@nadplo](https://twitter.com/nadplo) - The official Twitter account of the Palestine Liberation OrganizationNegotiations Affairs Department.
+- [@nadplo](https://twitter.com/nadplo) - The official Twitter account of the Palestine Liberation Organization Negotiations Affairs Department.
 - [@NewpressPs](https://twitter.com/@NewpressPs) - A Palestinian news agency in Arabic
 - [@newsnajah](https://twitter.com/newsnajah) - Najah newsletter
 - [@nooranhamdan](https://twitter.com/@nooranhamdan) - A Pro-Palestinian activist
@@ -143,6 +144,7 @@
 - [@Rahmazeinegypt](https://twitter.com/Rahmazeinegypt) - Pro-Palestinian Activist, Humanitarian
 - [@RamAbdu](https://twitter.com/RamAbdu) - Palestinian Professor, Human Rights Lawyer
 - [@rananazzalh](https://twitter.com/@rananazzalh) - a refugee then returnee. artist & activist. transnational existence on occupied lands: Palestine to turtle island and back again.
+- [@ravenmission](https://twitter.com/ravenmission) - The Raven Mission is dedicated to documenting the world's reaction to the ongoing atrocities faced by the Palestinian people
 - [@receipts_lol](https://twitter.com/receipts_lol) - Database of Israeli quotes demonstrating genocidal intent
 - [@Remroum](https://twitter.com/@Remroum) - A Palestinian activist and journalist
 - [@RivertoSea48](https://twitter.com/@RivertoSea48) - A Palestinian activist and journalist

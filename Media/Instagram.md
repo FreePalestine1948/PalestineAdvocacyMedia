@@ -52,6 +52,7 @@
 - [@ceolawyer](https://www.instagram.com/ceolawyer) - Palestinian Lawyer, Activist
 - [@connect_palestine](https://www.instagram.com/connect_palestine) - An initiative by Global Shapers that aims to support financially Palestinians and link them with valuable job prospects.
 - [@connectinghumanity_](https://www.instagram.com/connectinghumanity_) - A non profit organization to connect vulnerable people in conflict zones
+- [@countercoalition](https://www.instagram.com/countercoalition) - Countering Money's Influence in American Democracy
 - [@cravingpalestine](https://instagram.com/cravingpalestine) - A Pro-Palestinian initiative to educate and raise awareness about the Palestinian struggle for freedom and liberation.
 - [@decolonizepalestine](https://instagram.com/decolonizepalestine) - a collection of resources for anyone who wants to learn more about Palestine.
 - [@decolonizethisplace](https://instagram.com/decolonizethisplace) - Action-oriented: Indigenous struggle, Black liberation, free Palestine, global wage workers
@@ -158,6 +159,7 @@
 - [@pal48ps](https://www.instagram.com/pal48ps) - Our Palestine website, is mostly about Palestine before the Nakba, then the Nakba, and after the Nakba, the Jerusalem massacres, and the displaced Palestinian villages.
 - [@palestinechron](https://www.instagram.com/palestinechron) - The Palestine Chronicle is non-profit organization whose mission is to educate the general public by providing a forum that strives to highlight issues of relevance to human rights
 - [@palestinecinema](https://instagram.com/palestinecinema) - Palestine Cinema
+- [@palestineredcrescent](https://www.instagram.com/palestineredcrescent) - Palestine Red Crescent Society (PRCS) officially founded in 1968, is a national humanitarian organization caters to the health and welfare of the Palestinian people and others in need.
 - [@palestinestudies](https://www.instagram.com/palestinestudies) - The most reliable source of information and analysis on Palestine and the Israeli Occupation.
 - [@palestinevoices](https://instagram.com/palestinevoices) - Learn about Palestine from Palestinians. Only we can write the narrative 🇵🇸
 - [@palestinianyouthmovement](https://instagram.com/palestinianyouthmovement) - A transnational, independent, grassroots movement of Palestinian & Arab youth struggling for the liberation of our homeland.
