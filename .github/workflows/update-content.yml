@@ -20,6 +20,6 @@ jobs:
         run: |
           git config --global user.email " Freepalestine1948@tutanota.com"
           git config --global user.name "Github Actions"
-          git add .
+          git add -A .
           git commit -m "Automated content update"
           git push
