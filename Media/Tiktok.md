@@ -29,6 +29,7 @@
 - [@palestine._official](https://www.tiktok.com/@palestine._official) - Pro-Palestinian activist
 - [@palestine1thefirstone](https://www.tiktok.com/@palestine1thefirstone) - Pro-Palestinian activist
 - [@palestinestudies](https://www.tiktok.com/@palestinestudies) - The most reliable source of information and analysis on Palestine and the Israeli Occupation.
+- [@scalawagmag](https://www.tiktok.com/@scalawagmag) - Black-led, Black-centered, independent media pursuing liberation in the South.
 - [@spacebunny452](https://www.tiktok.com/@spacebunny452) - Pro-Palestinian Content Creator
 - [@thegazangirl](https://www.tiktok.com/@thegazangirl) - Brings stories, expert opinions, in depth analysis & news commentary from Palestine.
 - [@toronto4palestine](https://www.tiktok.com/@toronto4palestine) - Dedicated community-based movement amplifying oppressed voices and aiming to facilitate freedom & justice for Palestinians through strategic ACTION (e.g. call for manifestations, protests, signing online petitions, etc.).

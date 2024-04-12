@@ -148,6 +148,7 @@
 - [@receipts_lol](https://twitter.com/receipts_lol) - Database of Israeli quotes demonstrating genocidal intent
 - [@Remroum](https://twitter.com/@Remroum) - A Palestinian activist and journalist
 - [@RivertoSea48](https://twitter.com/@RivertoSea48) - A Palestinian activist and journalist
+- [@scalawagmag](https://twitter.com/scalawagmag) - Black-led, Black-centered, independent media pursuing liberation in the South.
 - [@shameensuleman](https://x.com/shameensuleman) -
 - [@shaunking](https://twitter.com/shaunking) - Pro-Palestinian Author / Writer / Poet, Activist
 - [@shazaabed](https://twitter.com/shazaabed) - Palestinian journalist

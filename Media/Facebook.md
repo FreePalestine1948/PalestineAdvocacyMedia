@@ -45,9 +45,11 @@
 - [@PCBSPalestine](https://www.facebook.com/PCBSPalestine) - The Palestinian Central Bureau of Statistics aims to develop and enhance the Palestinian official statistical system
 - [@Remi Kanazi](https://www.facebook.com/profile.php?id=100004038072521) - Palestinian Author / Writer / Poet, Activist
 - [@salbadfree](https://www.facebook.com/salbadfree) - Palestinian journalist, photographer, and artist
+- [@scalawagmag](https://www.facebook.com/scalawagmag) - Black-led, Black-centered, independent media pursuing liberation in the South.
 - [@Shathahanaysha1](https://www.facebook.com/Shathahanaysha1) - Palestinian journalist
 - [@sooom.love3](https://www.facebook.com/sooom.love3/) - Palestinian journalist, photographer, and filmmaker
 - [@Students4Palestine](https://www.facebook.com/Students4Palestine) - The Hague, Netherlands Student collective in solidarity with Palestine against Apartheid. End the Occupation
+- [@theIMEU](https://www.facebook.com/theIMEU) - Giving you access to untold stories, facts, and expert sources on all things #Palestine— politics, culture, art, and activism.
 - [@ThePalestinianMuseum](https://www.facebook.com/ThePalestinianMuseum) - The Palestinian Museum - Non-Governmental Association dedicated to supporting an open and dynamic Palestinian culture nationally and internationally. The Museum presents and engages with new perspectives on Palestinian history, society and culture.
 - [@ThePCRF](https://www.facebook.com/ThePCRF) - The PCRF is a non-political, non-profit organization dedicated to healing the wounds of war.
 - [@tom.zreika](https://www.facebook.com/tom.zreika) - Pro-Palestinian Lawyer, Humanitarian
