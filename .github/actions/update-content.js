@@ -7,7 +7,7 @@ let headers = {
 };
 
 let socialNetworksAPIendpint =
-  "https://palestinelove.org/api/v1/social-media/networks";
+  "https://data.palestinelove.org/api/v1/social-media/networks";
 
 async function convertJson2Markdown(title, data) {
   data = data.map((item) => {
